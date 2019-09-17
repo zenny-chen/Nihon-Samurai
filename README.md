@@ -24,4 +24,4 @@
 
 ## Other information
 
-1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)
+1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
