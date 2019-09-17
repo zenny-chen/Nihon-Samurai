@@ -16,3 +16,4 @@
 1. [祸津日神](https://zh.wikipedia.org/wiki/禍津日神)，[禍津日神](https://ja.wikipedia.org/wiki/禍津日神)（神名の「禍」（マガ）は「災厄」、「ツ」は上代語の格助詞「の」、「日」（ヒ）は「神霊」の意味であるので、「マガツヒ」の名義は「災厄の神霊」という意味になる。）
 1. [侍魂系列—— 绯雨闲丸人物介绍](http://www.sohu.com/a/211478729_667840)
 1. [斬紅郎無双剣ボイスデータ](http://amtug.html.xdomain.jp/lib/v/zan_v/zan_voice.shtml)
+1. [戦国　卍丸](http://you.lolipop.jp/s/kabuki/manjic.html)（页面用日语编码显示）
