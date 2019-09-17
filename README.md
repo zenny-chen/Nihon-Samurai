@@ -19,3 +19,9 @@
 1. [緋雨　閑丸](http://you.lolipop.jp/s/ss/4/sizumaru.html)（页面用日语编码 **Shift JIS** 显示）
 1. [戦国　卍丸](http://you.lolipop.jp/s/kabuki/manjic.html)（页面用日语编码 **Shift JIS** 显示）
 1. [侍魂5-侍魂zero零特别版技能人物出招表大全](https://www.mamecn.com/jiejiyouxichuzhaobiao/sh5tbb_shzeroltbbczb_gdyxczb_3195.html)
+
+<br />
+
+## Other information
+
+1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)
