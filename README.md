@@ -43,6 +43,8 @@
 1. [二项式定理](https://www.baidu.com/sf_bk/item/二项式定理/7134359?fr=kg_general&ms=1&rid=8135676937993314684)
 1. [如何不用微积分算个球？](https://www.toutiao.com/a6721927900490105348)
 1. [一道初中数学奥赛题让学生毫无办法，看了解答过程后大呼想不到](https://www.toutiao.com/a6725678761393537539)
+1. [圆周角定理](https://baike.baidu.com/item/圆周角定理/5943980?fr=aladdin)
+1. [一道初中数学竞赛题，很多人看完题后感觉简单，但做对者寥寥无几](https://www.toutiao.com/a6737569676479431172)
 1. [最短路径-Dijkstra算法和Floyd算法](https://www.toutiao.com/a6730185114266894856)
 1. [10大反直觉的数学结论](https://www.toutiao.com/a6730184150155788813/)
 
