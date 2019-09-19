@@ -35,11 +35,14 @@
 1. [國際音標](https://gan.wikipedia.org/wiki/國際音標)
 1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
 1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
+1. [飞机到底靠什么原理起飞的？老外用吹风机详解机翼原理，一看就懂](https://www.ixigua.com/i6737215504886268419/)
+1. [你绝对没想过原来数学家这么流氓，一言不合就进行暴力证明](https://www.toutiao.com/a6738248444781003276/)
 1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
 1. [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
 1. [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
 1. [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
 1. [移动两颗瓜子，使等式成立？女大学生只需3秒，当场录取](https://www.toutiao.com/i6737051646838178317/)
+1. [如此烧脑的题目你会做几道？](https://www.toutiao.com/a6738169966979187208/)
 1. [数学中函数的演变简史](https://www.toutiao.com/a6705366854317113869)
 1. 如何证明乘法交换律：首先确立ab的意思为b个a，ba的意思为a个b，假设ab都为正整数，将b个a（ab）纵向列出来，也就是每一横排写上一个a，共1列，再将a分解为基本单位1+1+1+.....写在横排，共a列。我们再把每一列相加，结果为1\*b（b个1），一共a列，所以总和为1\*b\*a（a个1\*b），即ab=1ba，根据正整数b的定义可以理解b为b个1，所以1\*b=b，得出结论:ab=ba。自己总结出的另一种超简洁证明方法：假设a\*b表示为一个矩形的面积，那么当把该矩形旋转90度便为b\*a的面积，两者显然相等。
 1. [二项式定理](https://www.baidu.com/sf_bk/item/二项式定理/7134359?fr=kg_general&ms=1&rid=8135676937993314684)
