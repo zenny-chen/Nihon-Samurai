@@ -32,6 +32,7 @@
 
 ## Other information
 
+1. [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
 1. [國際音標](https://gan.wikipedia.org/wiki/國際音標)
 1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
 1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
