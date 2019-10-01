@@ -51,8 +51,10 @@
 1. [圆周角定理](https://baike.baidu.com/item/圆周角定理/5943980?fr=aladdin)
 1. [一道初中数学竞赛题，很多人看完题后感觉简单，但做对者寥寥无几](https://www.toutiao.com/a6737569676479431172)
 1. [小学数学：谁发明了这几张动图，原来几何这么简单！](https://www.toutiao.com/a6739027876785439236/)
+1. [一道小学数学竞赛题难度不小，求正方形面积，要有很强的推理能力](https://www.toutiao.com/a6742377779532136974/)
 1. [最短路径-Dijkstra算法和Floyd算法](https://www.toutiao.com/a6730185114266894856)
 1. [10大反直觉的数学结论](https://www.toutiao.com/a6730184150155788813/)
+1. [π + e =？](https://www.toutiao.com/a6742442475337564684/)
 
 <br />
 
