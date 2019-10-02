@@ -42,20 +42,6 @@
 1. [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
 1. [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
 1. [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
-1. [移动两颗瓜子，使等式成立？女大学生只需3秒，当场录取](https://www.toutiao.com/i6737051646838178317/)
-1. [如此烧脑的题目你会做几道？](https://www.toutiao.com/a6738169966979187208/)
-1. [数学中函数的演变简史](https://www.toutiao.com/a6705366854317113869)
-1. 如何证明乘法交换律：首先确立ab的意思为b个a，ba的意思为a个b，假设ab都为正整数，将b个a（ab）纵向列出来，也就是每一横排写上一个a，共1列，再将a分解为基本单位1+1+1+.....写在横排，共a列。我们再把每一列相加，结果为1\*b（b个1），一共a列，所以总和为1\*b\*a（a个1\*b），即ab=1ba，根据正整数b的定义可以理解b为b个1，所以1\*b=b，得出结论:ab=ba。自己总结出的另一种超简洁证明方法：假设a\*b表示为一个矩形的面积，那么当把该矩形旋转90度便为b\*a的面积，两者显然相等。
-1. [二项式定理](https://www.baidu.com/sf_bk/item/二项式定理/7134359?fr=kg_general&ms=1&rid=8135676937993314684)
-1. [如何不用微积分算个球？](https://www.toutiao.com/a6721927900490105348)
-1. [一道初中数学奥赛题让学生毫无办法，看了解答过程后大呼想不到](https://www.toutiao.com/a6725678761393537539)
-1. [圆周角定理](https://baike.baidu.com/item/圆周角定理/5943980?fr=aladdin)
-1. [一道初中数学竞赛题，很多人看完题后感觉简单，但做对者寥寥无几](https://www.toutiao.com/a6737569676479431172)
-1. [小学数学：谁发明了这几张动图，原来几何这么简单！](https://www.toutiao.com/a6739027876785439236/)
-1. [一道小学数学竞赛题难度不小，求正方形面积，要有很强的推理能力](https://www.toutiao.com/a6742377779532136974/)
-1. [最短路径-Dijkstra算法和Floyd算法](https://www.toutiao.com/a6730185114266894856)
-1. [10大反直觉的数学结论](https://www.toutiao.com/a6730184150155788813/)
-1. [π + e =？](https://www.toutiao.com/a6742442475337564684/)
 
 <br />
 
