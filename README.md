@@ -32,6 +32,13 @@
 
 <br />
 
+## 魔法门之英雄无敌系列
+
+1. [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
+1. [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
+
+<br />
+
 ## Other information
 
 1. [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
