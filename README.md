@@ -40,6 +40,12 @@
 
 <br />
 
+## 生化危机系列
+
+1. [《生化危机0hd重制版》白金攻略 新手向白金攻略及要点心得](https://www.gamersky.com/handbook/201603/728649.shtml)
+
+<br />
+
 ## 电影/电视剧
 
 1. [日在校园](http://www.yhdm.tv/show/3728.html)
