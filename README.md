@@ -37,6 +37,9 @@
 1. [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
 1. [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
 1. [英雄无敌5地牢研究：元素锁链](https://www.gamersky.com/handbook/200605/22975.shtml)
+1. LAMUNATION-international-18+ Patch:
+![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
+
 
 <br />
 
