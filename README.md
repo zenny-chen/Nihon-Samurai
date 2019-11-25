@@ -61,7 +61,7 @@
 1. [How to add color to Github's README.md file](https://stackoverflow.com/questions/11509830/how-to-add-color-to-githubs-readme-md-file)
 1. [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
 1. [win10开启内置Ubuntu](https://www.jianshu.com/p/6d6e629df051)
-1. XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> 🔲 ，     Y <-> △
+1. XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △
 1. [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 1. [國際音標](https://gan.wikipedia.org/wiki/國際音標)
 1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
