@@ -22,7 +22,7 @@
 
 <br />
 
-## 街头霸王4相关
+## 街头霸王相关
 
 1. [《超级街霸4：街机版》角色战斗语音翻译](http://bbs.3dmgame.com/thread-2192801-1-1.html)
 1. [《超级街霸4：街机版》角色战斗语音翻译——【真琴篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194677)
@@ -37,6 +37,7 @@
 1. [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
 1. [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
 1. [英雄无敌5地牢研究：元素锁链](https://www.gamersky.com/handbook/200605/22975.shtml)
+1. Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
 1. LAMUNATION-international-18+ Patch:
 ![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
 
