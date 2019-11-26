@@ -37,16 +37,21 @@
 1. [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
 1. [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
 1. [英雄无敌5地牢研究：元素锁链](https://www.gamersky.com/handbook/200605/22975.shtml)
-1. Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
-1. LAMUNATION-international-18+ Patch:
-![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
-
 
 <br />
 
 ## 生化危机系列
 
 1. [《生化危机0hd重制版》白金攻略 新手向白金攻略及要点心得](https://www.gamersky.com/handbook/201603/728649.shtml)
+
+<br />
+
+## 其他游戏攻略
+
+1. [《伊苏6》图文攻略 全流程收集图文攻略](https://www.gamersky.com/handbook/201504/568815_3.shtml)
+1. Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
+1. LAMUNATION-international-18+ Patch:
+![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
 
 <br />
 
