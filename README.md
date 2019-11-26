@@ -58,6 +58,7 @@
 ## 电影/电视剧
 
 1. [日在校园](http://www.yhdm.tv/show/3728.html)
+1. [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
 
 <br />
 
