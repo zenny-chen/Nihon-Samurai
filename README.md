@@ -77,6 +77,7 @@
 1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 1. [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
+1. [看看3个齿轮在一起到底能不能转起来？](https://www.toutiao.com/i6765846115293069838/)
 1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
 1. [飞机到底靠什么原理起飞的？老外用吹风机详解机翼原理，一看就懂](https://www.ixigua.com/i6737215504886268419/)
 1. [你绝对没想过原来数学家这么流氓，一言不合就进行暴力证明](https://www.toutiao.com/a6738248444781003276/)
