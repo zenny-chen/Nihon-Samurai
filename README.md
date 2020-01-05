@@ -43,6 +43,7 @@
 ## 生化危机系列
 
 1. [《生化危机0hd重制版》白金攻略 新手向白金攻略及要点心得](https://www.gamersky.com/handbook/201603/728649.shtml)
+1. [生化危机1主线流程图文攻略 生化危机1全流程通关攻略](http://www.dianwannan.com/gonglue/5813/)
 
 <br />
 
