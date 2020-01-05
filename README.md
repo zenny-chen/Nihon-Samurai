@@ -50,6 +50,7 @@
 
 1. [《伊苏6》图文攻略 全流程收集图文攻略](https://www.gamersky.com/handbook/201504/568815_3.shtml)
 1. [《饿狼传说》系列角色背景资料](https://www.gamersky.com/handbook/201608/801902_39.shtml)
+1. [《帝国时代终极版》图文攻略 全兵种建筑介绍及玩法图文攻略](https://www.gamersky.com/handbook/201802/1017672.shtml)
 1. Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
 1. LAMUNATION-international-18+ Patch:
 ![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
