@@ -47,6 +47,11 @@
 
 <br />
 
+## 閃乱カグラ
+
+1. [閃乱カグラ Burst Re Newal 自由忍務 2-1(YouTube)](https://www.youtube.com/watch?v=VYKz184Su6w)
+1. [閃乱カグラ Burst Re Newal 自由忍務 3-1(YouTube)](https://www.youtube.com/watch?v=rqrjoMdAgSI)
+
 ## 其他游戏攻略
 
 1. [《伊苏6》图文攻略 全流程收集图文攻略](https://www.gamersky.com/handbook/201504/568815_3.shtml)
