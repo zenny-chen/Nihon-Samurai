@@ -51,6 +51,7 @@
 
 1. [閃乱カグラ Burst Re Newal 自由忍務 2-1(YouTube)](https://www.youtube.com/watch?v=VYKz184Su6w)
 1. [閃乱カグラ Burst Re Newal 自由忍務 3-1～6(YouTube)](https://www.youtube.com/watch?v=rqrjoMdAgSI)
+1. [閃乱カグラバーストリニューアル攻略 自由任務と出現妖](https://速報最新ニュース.com/burst_rel/47896/)
 
 <br />
 
