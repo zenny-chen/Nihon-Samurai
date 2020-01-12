@@ -50,7 +50,9 @@
 ## 閃乱カグラ
 
 1. [閃乱カグラ Burst Re Newal 自由忍務 2-1(YouTube)](https://www.youtube.com/watch?v=VYKz184Su6w)
-1. [閃乱カグラ Burst Re Newal 自由忍務 3-1(YouTube)](https://www.youtube.com/watch?v=rqrjoMdAgSI)
+1. [閃乱カグラ Burst Re Newal 自由忍務 3-1～6(YouTube)](https://www.youtube.com/watch?v=rqrjoMdAgSI)
+
+<br />
 
 ## 其他游戏攻略
 
