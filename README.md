@@ -74,6 +74,7 @@
 1. [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
 1. [昆池岩](https://www.juji.tv/dianying/kunchiyan/play-1911-0-1.html)
 1. [釜山行](http://www.yakuhd.com/programs/332356.html)
+1. [哭声](https://www.9527yy.com/mplay.php?mso=19002)
 
 <br />
 
