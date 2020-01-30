@@ -89,6 +89,7 @@
 1. XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △
 1. [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 1. [國際音標](https://gan.wikipedia.org/wiki/國際音標)
+1. [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
 1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 1. [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
