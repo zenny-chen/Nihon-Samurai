@@ -93,6 +93,7 @@
 1. [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
 1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 1. [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
+1. [这门语言曾对汉语产生深远影响，现在只剩1万多人作为母语](https://www.toutiao.com/a6787037519872524803/)
 1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
 1. [看看3个齿轮在一起到底能不能转起来？](https://www.toutiao.com/i6765846115293069838/)
 1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
