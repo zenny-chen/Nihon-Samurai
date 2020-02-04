@@ -105,7 +105,9 @@
 1. [理查德·费曼谈强人工智能——机器能够像人一样思考吗？](https://www.toutiao.com/i6777548195825189390/)
 1. [不一样的科普：现代物理学出现了三个分岔路口，真理该走向何方？](https://www.toutiao.com/i6760916958356439563/)
 1. [科学是万能的吗？并不是，这些现象科学就无法解释](https://www.toutiao.com/a6782202728098562567/)
+1. [物理学中十大著名的思想实验](https://www.toutiao.com/i6789086005652619787/)
 1. [杨振宁：我懂高能物理，我认为你不要走这个方向](https://www.toutiao.com/i6788861236365754883/)
+1. [为什么说量子力学“穷途末路”？量子力学存在什么致命的缺陷呢？](https://www.toutiao.com/i6788861235560448516/)
 1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
 1. [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
 1. [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
