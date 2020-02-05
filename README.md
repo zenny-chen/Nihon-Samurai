@@ -80,6 +80,12 @@
 
 <br />
 
+## 精彩小视频
+
+1. [小小年纪成为每个人学习的榜样](https://www.ixigua.com/i6759855548402781451/)
+
+<br />
+
 ## Other information
 
 1. [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
