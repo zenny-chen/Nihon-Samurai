@@ -80,9 +80,13 @@
 
 <br />
 
-## TED
+## TED演讲
 
-
+1. [TED演讲-人工智能是如何看懂图片的](https://www.ixigua.com/i6783985421714981389/)
+1. [TED演讲After watching this, your brain will not be the same](https://www.ixigua.com/i6768649190554731020/)
+1. [TED演讲：如何激发每个孩子成为终生阅读者？](https://www.ixigua.com/i6767117158355829251/)
+1. [TED演讲：如果你害怕英文对话，我建议你看看这个！](https://www.ixigua.com/i6779946910829511179/)
+1. [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
 
 <br />
 
@@ -90,6 +94,7 @@
 
 1. [小小年纪成为每个人学习的榜样](https://www.ixigua.com/i6759855548402781451/)
 1. [腿长有错？俄罗斯萝莉展示热身教程](https://www.ixigua.com/i6784695560252162568/)
+1. [8岁俄罗斯拳击女vs5岁日本功夫小子 严酷的训练！](https://www.bilibili.com/video/av10460294)
 1. [12岁的日本足球小将石井久继横空出世，中国足球的未来在哪里？](https://www.ixigua.com/i6782793857168835072/)
 1. [这是日本小学生的足球，这和我们的教育完全相反的](https://www.ixigua.com/i6781809609968452103/)
 
