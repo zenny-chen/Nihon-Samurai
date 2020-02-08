@@ -90,6 +90,12 @@
 
 <br />
 
+## 英语有声绘本
+
+1. [英文有声绘本《If You Give A Moose A Muffin》如果你给驼鹿松饼](https://www.toutiao.com/a6789768164658905603/)
+
+<br />
+
 ## 精彩小视频
 
 1. [小小年纪成为每个人学习的榜样](https://www.ixigua.com/i6759855548402781451/)
