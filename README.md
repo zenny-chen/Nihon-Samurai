@@ -138,6 +138,7 @@
 1. [不一样的科普：现代物理学出现了三个分岔路口，真理该走向何方？](https://www.toutiao.com/i6760916958356439563/)
 1. [科学是万能的吗？并不是，这些现象科学就无法解释](https://www.toutiao.com/a6782202728098562567/)
 1. [物理学中十大著名的思想实验](https://www.toutiao.com/i6789086005652619787/)
+1. [球形闪电成因不再是谜](https://www.toutiao.com/a6792293298145853966/)
 1. [杨振宁：我懂高能物理，我认为你不要走这个方向](https://www.toutiao.com/i6788861236365754883/)
 1. [为什么说量子力学“穷途末路”？量子力学存在什么致命的缺陷呢？](https://www.toutiao.com/i6788861235560448516/)
 1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
