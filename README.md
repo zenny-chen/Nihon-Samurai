@@ -5,6 +5,7 @@
 
 1. [日本武士有“纳刀”动作，中国古代刀入鞘为何没有？](https://zhidao.baidu.com/question/1452969784001607500.html)
 1. [居合斩作为游戏中的高等级必杀技，真的那么厉害吗？](https://www.toutiao.com/a6787300875258823175/)
+1. [一秒杀人的古武术！真有传说中那么玄乎？](https://www.toutiao.com/a6791060111008727565/)
 1. [刀与剑永恒的经典，曾经一度着迷的侍魂名兵器](http://www.sohu.com/a/211022972_600104)
 1. [古代的官方刽子手，行刑前为什么会往刀上喷酒？](https://baijiahao.baidu.com/s?id=1595532566524180631&wfr=spider&for=pc)
 1. [最坏的那个日本人叫福泽谕吉](https://www.toutiao.com/i6758655341845545475/)
@@ -93,9 +94,10 @@
 
 <br />
 
-## 英语有声绘本
+## 少儿读物
 
 1. [英文有声绘本《If You Give A Moose A Muffin》如果你给驼鹿松饼](https://www.toutiao.com/a6789768164658905603/)
+1. [寒假读经典：这20部英语儿童读物，孩子绝对不能错过](https://www.toutiao.com/a6773986450082890251/)
 
 <br />
 
