@@ -129,21 +129,6 @@
 1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 1. [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 1. [这门语言曾对汉语产生深远影响，现在只剩1万多人作为母语](https://www.toutiao.com/a6787037519872524803/)
-1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
-1. [14张机械原理动态图，直观展示复杂而神秘的机械美](https://www.toutiao.com/i6491873587635421709/)
-1. [看看3个齿轮在一起到底能不能转起来？](https://www.toutiao.com/i6765846115293069838/)
-1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
-1. [飞机到底靠什么原理起飞的？老外用吹风机详解机翼原理，一看就懂](https://www.ixigua.com/i6737215504886268419/)
-1. [你绝对没想过原来数学家这么流氓，一言不合就进行暴力证明](https://www.toutiao.com/a6738248444781003276/)
-1. [原子是怎么来的？今天讲讲古希腊的原子论](https://www.toutiao.com/a6753024636088222211/)
-1. [《Science》论文：人脑只需单个神经元就可进行XOR异或运算](https://www.toutiao.com/i6783971602942919175/)
-1. [理查德·费曼谈强人工智能——机器能够像人一样思考吗？](https://www.toutiao.com/i6777548195825189390/)
-1. [不一样的科普：现代物理学出现了三个分岔路口，真理该走向何方？](https://www.toutiao.com/i6760916958356439563/)
-1. [科学是万能的吗？并不是，这些现象科学就无法解释](https://www.toutiao.com/a6782202728098562567/)
-1. [物理学中十大著名的思想实验](https://www.toutiao.com/i6789086005652619787/)
-1. [球形闪电成因不再是谜](https://www.toutiao.com/a6792293298145853966/)
-1. [杨振宁：我懂高能物理，我认为你不要走这个方向](https://www.toutiao.com/i6788861236365754883/)
-1. [为什么说量子力学“穷途末路”？量子力学存在什么致命的缺陷呢？](https://www.toutiao.com/i6788861235560448516/)
 1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
 1. [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
 1. [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
@@ -163,7 +148,31 @@
 
 <br/>
 
+## 物理相关
+
+1. [机器人都是怎么行走的？一波连杆机构原理动图告诉你！](https://www.toutiao.com/a6638226302497194504/)
+1. [14张机械原理动态图，直观展示复杂而神秘的机械美](https://www.toutiao.com/i6491873587635421709/)
+1. [看看3个齿轮在一起到底能不能转起来？](https://www.toutiao.com/i6765846115293069838/)
+1. [5G为啥要用毫米波？](https://www.toutiao.com/a6737620063525814795)
+1. [飞机到底靠什么原理起飞的？老外用吹风机详解机翼原理，一看就懂](https://www.ixigua.com/i6737215504886268419/)
+1. [你绝对没想过原来数学家这么流氓，一言不合就进行暴力证明](https://www.toutiao.com/a6738248444781003276/)
+1. [原子是怎么来的？今天讲讲古希腊的原子论](https://www.toutiao.com/a6753024636088222211/)
+1. [《Science》论文：人脑只需单个神经元就可进行XOR异或运算](https://www.toutiao.com/i6783971602942919175/)
+1. [理查德·费曼谈强人工智能——机器能够像人一样思考吗？](https://www.toutiao.com/i6777548195825189390/)
+1. [不一样的科普：现代物理学出现了三个分岔路口，真理该走向何方？](https://www.toutiao.com/i6760916958356439563/)
+1. [科学是万能的吗？并不是，这些现象科学就无法解释](https://www.toutiao.com/a6782202728098562567/)
+1. [物理学中十大著名的思想实验](https://www.toutiao.com/i6789086005652619787/)
+1. [球形闪电成因不再是谜](https://www.toutiao.com/a6792293298145853966/)
+1. [杨振宁：我懂高能物理，我认为你不要走这个方向](https://www.toutiao.com/i6788861236365754883/)
+1. [为什么说量子力学“穷途末路”？量子力学存在什么致命的缺陷呢？](https://www.toutiao.com/i6788861235560448516/)
+1. [一个简单的高中实验，揭示了一个无法解释的诡异现象](https://www.toutiao.com/a6653760098147500556/)
+1. [这个世界似乎是被精心调校过的……](https://www.toutiao.com/a6599915557225497101/)
+
+<br />
+
 ## 动物相关
 
 1. [蚰蜒](https://byte.baike.com/cwiki/蚰蜒&fr=toutiao?hack=1#hack=1)
 1. [石龙子](https://byte.baike.com/cwiki/石龙子&fr=toutiao?hack=1#hack=1)
+
+
