@@ -79,6 +79,8 @@
 1. [釜山行](http://www.yakuhd.com/programs/332356.html)
 1. [哭声](https://www.9527yy.com/mplay.php?mso=19002)
 1. [囧妈](https://www.ixigua.com/cinema/album/85dS526nogC_85e7RIWQKBp/)
+1. [利刃出鞘](https://m.yse1234.com/kan/172605-0-1.html)
+1. [无人生还](https://www.meiju22.com/new/Play/1375-1-1.html)
 
 <br />
 
