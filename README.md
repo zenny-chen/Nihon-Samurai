@@ -72,6 +72,7 @@
 ## 电影/电视剧
 
 1. [日在校园](http://www.yhdm.tv/show/3728.html)
+1. [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 1. [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 1. [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
 1. [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
