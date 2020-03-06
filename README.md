@@ -95,6 +95,7 @@
 1. [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
 1. [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
 1. [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
+1. [暴躁老头证明上帝不存在，全程高能 论论点深入只佩服这位！](https://www.ixigua.com/pseries/6776227842842690062_6800556549245764099/)
 
 <br />
 
