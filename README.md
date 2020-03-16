@@ -72,6 +72,7 @@
 ## 电影/电视剧
 
 1. [日在校园](http://www.yhdm.tv/show/3728.html)
+1. [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
 1. [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 1. [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 1. [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
@@ -115,6 +116,7 @@
 1. [10岁的日本小女孩练得一手恐怖的刀法](https://www.ixigua.com/i6426665869355745538/)
 1. [12岁的日本足球小将石井久继横空出世，中国足球的未来在哪里？](https://www.ixigua.com/i6782793857168835072/)
 1. [这是日本小学生的足球，这和我们的教育完全相反的](https://www.ixigua.com/i6781809609968452103/)
+1. [古代的黑科技“火折子”，为何能够一吹即燃？原理不要太简单](https://www.ixigua.com/i6804396350973673996/)
 
 <br />
 
