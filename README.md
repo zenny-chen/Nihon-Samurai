@@ -73,6 +73,7 @@
 
 1. [日在校园](http://www.yhdm.tv/show/3728.html)
 1. [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
+1. [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
 1. [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 1. [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 1. [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
