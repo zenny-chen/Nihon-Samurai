@@ -71,77 +71,80 @@
 
 ## 电影/电视剧
 
-1. [日在校园](http://www.yhdm.tv/show/3728.html)
-1. [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
-1. [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
-1. [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
-1. [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
-1. [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
-1. [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
-1. [昆池岩](https://www.juji.tv/dianying/kunchiyan/play-1911-0-1.html)
-1. [釜山行](http://www.yakuhd.com/programs/332356.html)
-1. [哭声](https://www.9527yy.com/mplay.php?mso=19002)
-1. [囧妈](https://www.ixigua.com/cinema/album/85dS526nogC_85e7RIWQKBp/)
-1. [利刃出鞘](https://m.yse1234.com/kan/172605-0-1.html)
-1. [无人生还](https://www.meiju22.com/new/Play/1375-1-1.html)
+- [日在校园](http://www.yhdm.tv/show/3728.html)
+- [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
+- [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
+- [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
+- [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
+- [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
+- [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
+- [昆池岩](https://www.juji.tv/dianying/kunchiyan/play-1911-0-1.html)
+- [釜山行](http://www.yakuhd.com/programs/332356.html)
+- [哭声](https://www.9527yy.com/mplay.php?mso=19002)
+- [囧妈](https://www.ixigua.com/cinema/album/85dS526nogC_85e7RIWQKBp/)
+- [利刃出鞘](https://m.yse1234.com/kan/172605-0-1.html)
+- [无人生还](https://www.meiju22.com/new/Play/1375-1-1.html)
 
 <br />
 
 ## TED演讲
 
-1. [TED演讲-人工智能是如何看懂图片的](https://www.ixigua.com/i6783985421714981389/)
-1. [TED演讲After watching this, your brain will not be the same](https://www.ixigua.com/i6768649190554731020/)
-1. [TED演讲：如何激发每个孩子成为终生阅读者？](https://www.ixigua.com/i6767117158355829251/)
-1. [TED演讲：如果你害怕英文对话，我建议你看看这个！](https://www.ixigua.com/i6779946910829511179/)
-1. [TED英文演讲合集：第77讲 How to make stress your friend](https://www.ixigua.com/i6771697741601964556/)
-1. [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
-1. [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
-1. [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
-1. [暴躁老头证明上帝不存在，全程高能 论论点深入只佩服这位！](https://www.ixigua.com/pseries/6776227842842690062_6800556549245764099/)
+- [TED演讲-人工智能是如何看懂图片的](https://www.ixigua.com/i6783985421714981389/)
+- [TED演讲After watching this, your brain will not be the same](https://www.ixigua.com/i6768649190554731020/)
+- [TED演讲：如何激发每个孩子成为终生阅读者？](https://www.ixigua.com/i6767117158355829251/)
+- [TED演讲：如果你害怕英文对话，我建议你看看这个！](https://www.ixigua.com/i6779946910829511179/)
+- [TED英文演讲合集：第77讲 How to make stress your friend](https://www.ixigua.com/i6771697741601964556/)
+- [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
+- [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
+- [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
+- [暴躁老头证明上帝不存在，全程高能 论论点深入只佩服这位！](https://www.ixigua.com/pseries/6776227842842690062_6800556549245764099/)
 
 <br />
 
 ## 少儿读物
 
-1. [英文有声绘本《If You Give A Moose A Muffin》如果你给驼鹿松饼](https://www.toutiao.com/a6789768164658905603/)
-1. [寒假读经典：这20部英语儿童读物，孩子绝对不能错过](https://www.toutiao.com/a6773986450082890251/)
+- [英文有声绘本《If You Give A Moose A Muffin》如果你给驼鹿松饼](https://www.toutiao.com/a6789768164658905603/)
+- [寒假读经典：这20部英语儿童读物，孩子绝对不能错过](https://www.toutiao.com/a6773986450082890251/)
 
 <br />
 
 ## 精彩小视频
 
-1. [小小年纪成为每个人学习的榜样](https://www.ixigua.com/i6759855548402781451/)
-1. [我们是这样压八字马的……](https://www.ixigua.com/i6526827315068931336/)
-1. [腿长有错？俄罗斯萝莉展示热身教程](https://www.ixigua.com/i6784695560252162568/)
-1. [8岁俄罗斯拳击女vs5岁日本功夫小子 严酷的训练！](https://www.bilibili.com/video/av10460294)
-1. [10岁的日本小女孩练得一手恐怖的刀法](https://www.ixigua.com/i6426665869355745538/)
-1. [12岁的日本足球小将石井久继横空出世，中国足球的未来在哪里？](https://www.ixigua.com/i6782793857168835072/)
-1. [这是日本小学生的足球，这和我们的教育完全相反的](https://www.ixigua.com/i6781809609968452103/)
-1. [古代的黑科技“火折子”，为何能够一吹即燃？原理不要太简单](https://www.ixigua.com/i6804396350973673996/)
+- [小小年纪成为每个人学习的榜样](https://www.ixigua.com/i6759855548402781451/)
+- [我们是这样压八字马的……](https://www.ixigua.com/i6526827315068931336/)
+- [腿长有错？俄罗斯萝莉展示热身教程](https://www.ixigua.com/i6784695560252162568/)
+- [8岁俄罗斯拳击女vs5岁日本功夫小子 严酷的训练！](https://www.bilibili.com/video/av10460294)
+- [10岁的日本小女孩练得一手恐怖的刀法](https://www.ixigua.com/i6426665869355745538/)
+- [12岁的日本足球小将石井久继横空出世，中国足球的未来在哪里？](https://www.ixigua.com/i6782793857168835072/)
+- [这是日本小学生的足球，这和我们的教育完全相反的](https://www.ixigua.com/i6781809609968452103/)
+- [古代的黑科技“火折子”，为何能够一吹即燃？原理不要太简单](https://www.ixigua.com/i6804396350973673996/)
+- [难道这就是磁悬浮列车的原理吗？感觉像未来火车的发展趋势！](https://www.ixigua.com/i6789444433646453256/)
+- [人与自然：蜻蜓幼虫，变成蜻蜓的过程，太神奇了，谁见过幼虫？](https://www.ixigua.com/i6801807632198795788/)
+- [啄兄，你是一只正经的啄木鸟](https://www.ixigua.com/i6778039590411305476/)
 
 <br />
 
 ## Other information
 
-1. [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
-1. [GitHub上README.md编写教程（基本语法）](https://blog.csdn.net/m0_37885651/article/details/86642692)
-1. [How to add color to Github's README.md file](https://stackoverflow.com/questions/11509830/how-to-add-color-to-githubs-readme-md-file)
-1. [快来查一下，有多少人正在蹭你家的网？](https://www.toutiao.com/a6772405957730238988/)
-1. [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
-1. [win10开启内置Ubuntu](https://www.jianshu.com/p/6d6e629df051)
-1. XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △
-1. [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
-1. [國際音標](https://gan.wikipedia.org/wiki/國際音標)
-1. [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
-1. [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
-1. [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
-1. [这门语言曾对汉语产生深远影响，现在只剩1万多人作为母语](https://www.toutiao.com/a6787037519872524803/)
-1. [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
-1. [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
-1. [病毒究竟有多厉害？BBC拍出了这部9.4分的科幻大片](https://www.toutiao.com/a6798899207408189966/)
-1. [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
-1. [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
-1. [彳亍](https://baike.baidu.com/item/彳亍/51329)
+- [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
+- [GitHub上README.md编写教程（基本语法）](https://blog.csdn.net/m0_37885651/article/details/86642692)
+- [How to add color to Github's README.md file](https://stackoverflow.com/questions/11509830/how-to-add-color-to-githubs-readme-md-file)
+- [快来查一下，有多少人正在蹭你家的网？](https://www.toutiao.com/a6772405957730238988/)
+- [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
+- [win10开启内置Ubuntu](https://www.jianshu.com/p/6d6e629df051)
+- XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △
+- [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
+- [國際音標](https://gan.wikipedia.org/wiki/國際音標)
+- [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
+- [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
+- [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
+- [这门语言曾对汉语产生深远影响，现在只剩1万多人作为母语](https://www.toutiao.com/a6787037519872524803/)
+- [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
+- [Octopus](https://en.wikipedia.org/wiki/Octopus)（The scientific Latin term octopus was derived from Ancient Greek ὀκτώπους, a compound form of ὀκτώ (oktō, "eight") and πούς (pous, "foot"), itself a variant form of ὀκτάπους, a word used for example by Alexander of Tralles (c. 525–605) for the common octopus. The standard pluralised form of "octopus" in English is "octopuses"; the Ancient Greek plural ὀκτώποδες, "octopodes" (/ɒkˈtɒpədiːz/), has also been used historically. The alternative plural "octopi" – which wrongly assumes it is a Latin second declension "-us" noun or adjective when, in either Greek or Latin, it is a third declension one – is considered grammatically incorrect, but is used frequently enough to be acknowledged by the descriptivist Merriam-Webster 11th Collegiate Dictionary and Webster's New World College Dictionary. The Oxford English Dictionary lists "octopuses", "octopi", and "octopodes", in that order, reflecting frequency of use, calling "octopodes" rare and noting that "octopi" is based on a misunderstanding. The New Oxford American Dictionary (3rd Edition, 2010) lists "octopuses" as the only acceptable pluralisation, and indicates that "octopodes" is still occasionally used, but that "octopi" is incorrect.）
+- [病毒究竟有多厉害？BBC拍出了这部9.4分的科幻大片](https://www.toutiao.com/a6798899207408189966/)
+- [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
+- [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
+- [彳亍](https://baike.baidu.com/item/彳亍/51329)
 
 <br />
 
@@ -182,8 +185,8 @@
 
 ## 动物相关
 
-1. [蚰蜒](https://byte.baike.com/cwiki/蚰蜒&fr=toutiao?hack=1#hack=1)
-1. [石龙子](https://byte.baike.com/cwiki/石龙子&fr=toutiao?hack=1#hack=1)
-1. [what？昆虫们其实是外星人？](https://www.toutiao.com/a6801657902638563851/)
+- [蚰蜒](https://byte.baike.com/cwiki/蚰蜒&fr=toutiao?hack=1#hack=1)
+- [石龙子](https://byte.baike.com/cwiki/石龙子&fr=toutiao?hack=1#hack=1)
+- [what？昆虫们其实是外星人？](https://www.toutiao.com/a6801657902638563851/)
 
 
