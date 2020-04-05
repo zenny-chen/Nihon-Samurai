@@ -98,11 +98,13 @@
 - [TED演讲：如何激发每个孩子成为终生阅读者？](https://www.ixigua.com/i6767117158355829251/)
 - [TED演讲：如果你害怕英文对话，我建议你看看这个！](https://www.ixigua.com/i6779946910829511179/)
 - [TED英文演讲合集：第77讲 How to make stress your friend](https://www.ixigua.com/i6771697741601964556/)
+- [TED演讲：别坚持说英语！](https://www.ixigua.com/i6798798383373877767/)
 - [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
 - [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
 - [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
 - [暴躁老头证明上帝不存在，全程高能 论论点深入只佩服这位！](https://www.ixigua.com/pseries/6776227842842690062_6800556549245764099/)
 - [为什么英语中的星期几，跟数字几乎完全没关系？涨姿势了](https://www.ixigua.com/i6811725282412593676/)
+- [美剧常见英文缩写：gonna、wanna、gotta的区别](https://www.ixigua.com/pseries/6808349628287681028_6801363177108931086/)
 
 <br />
 
