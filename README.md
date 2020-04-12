@@ -101,6 +101,7 @@
 - [TED演讲：如果你害怕英文对话，我建议你看看这个！](https://www.ixigua.com/i6779946910829511179/)
 - [TED英文演讲合集：第77讲 How to make stress your friend](https://www.ixigua.com/i6771697741601964556/)
 - [TED演讲：别坚持说英语！](https://www.ixigua.com/i6798798383373877767/)
+- [TED演讲：你想做什么样的工作](https://www.ixigua.com/i6814457780464779779/)
 - [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
 - [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
 - [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
