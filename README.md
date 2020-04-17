@@ -77,6 +77,8 @@
 - [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
 - [暗杀教室第一季](https://www.55cc.cc/dongman/3994/)
 - [暗杀教室第二季](https://www.55cc.cc/dongman/14347/)
+- [天降之物第一季](http://m.imomoe.in/view/4975.html)
+- [天降之物第二季](http://m.imomoe.in/view/4718.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
