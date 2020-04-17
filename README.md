@@ -79,6 +79,7 @@
 - [暗杀教室第二季](https://www.55cc.cc/dongman/14347/)
 - [天降之物第一季](http://m.imomoe.in/view/4975.html)
 - [天降之物第二季](http://m.imomoe.in/view/4718.html)
+- [日本动漫：缘之空](http://www.imomoe.in/view/2883.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
