@@ -139,6 +139,7 @@
 - [难道这就是磁悬浮列车的原理吗？感觉像未来火车的发展趋势！](https://www.ixigua.com/i6789444433646453256/)
 - [人与自然：蜻蜓幼虫，变成蜻蜓的过程，太神奇了，谁见过幼虫？](https://www.ixigua.com/i6801807632198795788/)
 - [啄兄，你是一只正经的啄木鸟](https://www.ixigua.com/i6778039590411305476/)
+- [生命 生命的挑战](https://www.ixigua.com/cinema/album/86ZII1uxioU_871VAmtX3u6/)
 
 <br />
 
