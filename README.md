@@ -155,6 +155,7 @@
 - [上海一网通办](http://zwdt.sh.gov.cn/govPortals/index.do)
 - [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
 - [win10开启内置Ubuntu](https://www.jianshu.com/p/6d6e629df051)
+- Windows 10 Edge浏览器中使用Ctrl+鼠标左键可直接新标签页打开指定的链接。
 - XBOX手柄按键与PS手柄按键对应——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △
 - [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 - [國際音標](https://gan.wikipedia.org/wiki/國際音標)
