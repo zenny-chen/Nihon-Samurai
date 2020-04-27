@@ -81,6 +81,7 @@
 - [天降之物第二季](http://m.imomoe.in/view/4718.html)
 - [白箱 SHIROBAKO](https://www.acfun.cn/bangumi/aa6000984)
 - [日本动漫：缘之空](http://www.imomoe.in/view/2883.html)
+- [乱步奇谭：拉普拉斯的游戏](https://www.ixigua.com/cinema/album/7PYfc38gMxL_7PYfgAvRsOM/)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
