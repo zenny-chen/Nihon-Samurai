@@ -168,6 +168,7 @@
 - [各类话题“动词短语” 雅思口语，等级英语改错都能用到 下篇](https://www.toutiao.com/a6813908390067044868/)
 - [这门语言曾对汉语产生深远影响，现在只剩1万多人作为母语](https://www.toutiao.com/a6787037519872524803/)
 - [都说治贪腐在于监督，明朝监督体系堪称恐怖，结果该贪还是贪](https://www.toutiao.com/a6818177223091028491/)
+- [“棉花糖实验”被推翻：原来我们一直搞错了“延迟满足”](https://www.toutiao.com/a6737169139418268171/)
 - [ching chong是什么意思](https://zhidao.baidu.com/question/555494435.html?ivk_sa=1022817r)（Chinks：中国佬）
 - [nigga 是什么意思](https://zhidao.baidu.com/question/550466313.html)（还有一种含蓄表达叫n1994）
 - [The Plural of Octopus: Octopi or Octopuses?](https://www.grammarly.com/blog/octopi-octopuses/)（octopus复数形式还有octopodes）
