@@ -100,6 +100,7 @@
 - [Mother](https://www.rijula.com/rijuplay/465-2-1/)
 - [狂赌之渊真人版](https://www.rijutv.com/player/40180.html)
 - [狂赌之渊真人版 第二季](https://www.rijutv.com/riju/12960.html)
+- [[泰剧]亲爱的小孩09](https://video.tudou.com/v/XMjQ3MDA2MTU2MA==)
 - [擦鞋童](https://www.ixigua.com/cinema/album/7OK9bjdcH8x_7WFkMW9mBAr/)
 - [阿Q正传](https://www.ixigua.com/cinema/album/7NXazhIpiO8_7NXb1R13K4X/)
 
