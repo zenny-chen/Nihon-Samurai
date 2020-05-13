@@ -9,6 +9,7 @@
 - [刀与剑永恒的经典，曾经一度着迷的侍魂名兵器](http://www.sohu.com/a/211022972_600104)
 - [古代的官方刽子手，行刑前为什么会往刀上喷酒？](https://baijiahao.baidu.com/s?id=1595532566524180631&wfr=spider&for=pc)
 - [最坏的那个日本人叫福泽谕吉](https://www.toutiao.com/i6758655341845545475/)
+- [日本游戏为什么特别喜欢加入武士文化？](https://www.toutiao.com/a6825391155576832516/)
 
 <br />
 
