@@ -87,6 +87,7 @@
 - [乱步奇谭：拉普拉斯的游戏](https://www.ixigua.com/cinema/album/7PYfc38gMxL_7PYfgAvRsOM/)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [日本动漫：妖精的旋律](http://www.imomoe.in/view/2708.html)
+- [通灵王](http://m.yhdm.tv/show/923.html)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
 - [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
