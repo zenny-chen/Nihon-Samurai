@@ -167,6 +167,7 @@
 
 ## Other information
 
+- Windows下浏览器中按住ctrl再点击超链接则可直接在新标签栏中打开网页；macOS下则是按住command键。
 - [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
 - [GitHub上README.md编写教程（基本语法）](https://blog.csdn.net/m0_37885651/article/details/86642692)
 - [How to add color to Github's README.md file](https://stackoverflow.com/questions/11509830/how-to-add-color-to-githubs-readme-md-file)
