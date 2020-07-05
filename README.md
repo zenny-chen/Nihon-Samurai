@@ -68,7 +68,9 @@
 - [《帝国时代终极版》图文攻略 全兵种建筑介绍及玩法图文攻略](https://www.gamersky.com/handbook/201802/1017672.shtml)
 - [Campanella](https://legendofheroes.fandom.com/wiki/Campanella)
 - [《洛克人X遗产合集》图文攻略](https://www.gamersky.com/handbook/201807/1077061.shtml)
-- LAMUNATION-international-18+ Patch: ![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
+- LAMUNATION-international-18+ Patch: 
+
+![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
 
 <br />
 
