@@ -67,6 +67,7 @@
 - [《饿狼传说》系列角色背景资料](https://www.gamersky.com/handbook/201608/801902_39.shtml)
 - [《帝国时代终极版》图文攻略 全兵种建筑介绍及玩法图文攻略](https://www.gamersky.com/handbook/201802/1017672.shtml)
 - [Campanella](https://legendofheroes.fandom.com/wiki/Campanella)
+- [洛克人8重要收集要素，40颗螺丝全收集攻略](http://pc.tgbus.com/danji_207/91633/)
 - [《洛克人X遗产合集》图文攻略](https://www.gamersky.com/handbook/201807/1077061.shtml)
 - LAMUNATION-international-18+ Patch: 
 
