@@ -133,6 +133,7 @@
 - [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
 - [暴躁老头证明上帝不存在，全程高能 论论点深入只佩服这位！](https://www.ixigua.com/pseries/6776227842842690062_6800556549245764099/)
 - [为什么英语中的星期几，跟数字几乎完全没关系？涨姿势了](https://www.ixigua.com/i6811725282412593676/)
+- [标准英语发音教程，英语元音发音 Vowel Sounds](https://www.ixigua.com/6560526782603198983/)
 - [美剧常见英文缩写：gonna、wanna、gotta的区别](https://www.ixigua.com/pseries/6808349628287681028_6801363177108931086/)
 - [讽刺短片《不一样的数学》，这可能是美国社会的真实写照了！](https://mp.weixin.qq.com/s/HrCBVsFjsdK6XkIWbQOrcA)
 - [为什么我们要更专注于学习而不是娱乐？](https://www.ixigua.com/i6829513326385431051/)
