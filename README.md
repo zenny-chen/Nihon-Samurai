@@ -166,6 +166,7 @@
 - [生命 生命的挑战](https://www.ixigua.com/cinema/album/86ZII1uxioU_871VAmtX3u6/)
 - [街霸音乐居然用交响乐演奏出来 立时高大上许多](https://www.ixigua.com/i6582310467010560526/)
 - [铁拳七 小雨妹子被壮汉毒打](https://www.ixigua.com/i6828520144394781184/)
+- [用吠陀占星术对2020年12月21日起世界可能将会发生大事件的推测](https://www.ixigua.com/6844902395915272717)
 
 <br />
 
