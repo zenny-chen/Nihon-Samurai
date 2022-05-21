@@ -149,6 +149,7 @@
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [日本动漫：妖精的旋律](http://www.imomoe.in/view/2708.html)
 - [派对浪客诸葛孔明](https://www.yhdmp.net/vp/22172-1-0.html)
+- [喧哗番长 乙女 Girl Beats Boys](https://www.yhdmp.net/showp/17368.html)
 - [通灵王](http://m.yhdm.tv/show/923.html)
 - [缘之空](https://m.tmdm.tv/yuanzhikong/)
 - 进击的巨人观看次序：
@@ -374,4 +375,6 @@
 - 12－12
 - 13－11
 - 14－09
+
+
 
