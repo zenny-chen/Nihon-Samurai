@@ -31,12 +31,12 @@
 <br/>
 
 ## 街头霸王相关
-1. [《超级街霸4：街机版》角色战斗语音翻译](http://bbs.3dmgame.com/thread-2192801-1-1.html)
-1. [《超级街霸4：街机版》角色战斗语音翻译——【真琴篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194677)
-1. [《超级街霸4：街机版》角色战斗语音翻译——【春麗篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2193171)
-1. [《超级街霸4：街机版》角色战斗语音翻译——【伊吹篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194222)
-1. [《超级街霸4：街机版》角色战斗语音翻译——【狂鬼篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2196433)
-
+- [《超级街霸4：街机版》角色战斗语音翻译](http://bbs.3dmgame.com/thread-2192801-1-1.html)
+- [《超级街霸4：街机版》角色战斗语音翻译——【真琴篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194677)
+- [《超级街霸4：街机版》角色战斗语音翻译——【春麗篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2193171)
+- [《超级街霸4：街机版》角色战斗语音翻译——【伊吹篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194222)
+- [《超级街霸4：街机版》角色战斗语音翻译——【狂鬼篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2196433)
+- [库力呀《街霸5》新手教学：系统术语必备](https://www.ixigua.com/6295535116764578306)
 <br/>
 
 ## 魔法门之英雄无敌系列
@@ -376,6 +376,4 @@
 - 12－12
 - 13－11
 - 14－09
-
-
 
