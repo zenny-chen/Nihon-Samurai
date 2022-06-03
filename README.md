@@ -15,7 +15,7 @@
 - [小猪佩奇（英国学前电视动画片）_百度百科 (baidu.com)](https://baike.baidu.com/item/%E5%B0%8F%E7%8C%AA%E4%BD%A9%E5%A5%87/12343674?fr=aladdin)
 - [FC游戏网页版](http://fc.my71.top/)
 
-<br/>
+<br />
 
 ## サムライスピリッツ
 
@@ -28,7 +28,7 @@
 1. [戦国　卍丸](http://you.lolipop.jp/s/kabuki/manjic.html)（页面用日语编码 **Shift JIS** 显示）
 1. [侍魂5-侍魂zero零特别版技能人物出招表大全](https://www.mamecn.com/jiejiyouxichuzhaobiao/sh5tbb_shzeroltbbczb_gdyxczb_3195.html)
 
-<br/>
+<br />
 
 ## 街头霸王相关
 - [《超级街霸4：街机版》角色战斗语音翻译](http://bbs.3dmgame.com/thread-2192801-1-1.html)
@@ -37,7 +37,9 @@
 - [《超级街霸4：街机版》角色战斗语音翻译——【伊吹篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2194222)
 - [《超级街霸4：街机版》角色战斗语音翻译——【狂鬼篇】](http://bbs.3dmgame.com/forum.php?mod=viewthread&tid=2196433)
 - [库力呀《街霸5》新手教学：系统术语必备](https://www.ixigua.com/6295535116764578306)
-<br/>
+- [看不懂街霸5？短短三分钟教您看明白即将进入奥运会的格斗游戏~](https://www.ixigua.com/6824324379262845444)
+
+<br />
 
 ## 魔法门之英雄无敌系列
 
@@ -75,7 +77,7 @@
 英战属于点火战列，除了六级点火能力不行以外，其他的用HE烧的很愉悦
 法战因其特殊的加速能力，打法从黎塞留开始基本都是涡轮增压级狂飙打法
 
-<br/>
+<br />
 
 ## 其他游戏攻略
 
@@ -95,13 +97,13 @@
 - [双截龙4实用连招推荐 简单好用连招操作技巧汇总](https://m.3dmgame.com/mip/gl/3627786.html)
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
 
-<br/>
+<br />
 
 ## 【win10下解决fatal error的方法】
 
 大名鼎鼎的PVZ，就算没玩过的玩家也应该有所耳闻，不用我多介绍了吧。这里说下如果win10遇到游戏进不去fatal error的话，主要问题就是游戏不能全屏玩。所以WIN+R输入regedit打开注册表，然后找到以下位置：`HKEY_CURRENT_USER\SOFTWARE\SteamPopCap\PlantsVsZombies`，新建DWORD(32位)值，然后改名为`ScreenMode`即可。如果注册表里已有此项的话双击进去，把数值数据改为0，然后再启动游戏就可以进了。
 
-<br/>
+<br />
 
 ## 电影/电视剧
 
@@ -184,7 +186,7 @@
 - [擦鞋童](https://www.ixigua.com/cinema/album/7OK9bjdcH8x_7WFkMW9mBAr/)
 - [阿Q正传](https://www.ixigua.com/cinema/album/7NXazhIpiO8_7NXb1R13K4X/)
 
-<br/>
+<br />
 
 ## TED演讲
 
@@ -206,14 +208,14 @@
 - [讽刺短片《不一样的数学》，这可能是美国社会的真实写照了！](https://mp.weixin.qq.com/s/HrCBVsFjsdK6XkIWbQOrcA)
 - [为什么我们要更专注于学习而不是娱乐？](https://www.ixigua.com/i6829513326385431051/)
 
-<br/>
+<br />
 
 ## 少儿读物
 
 - [英文有声绘本《If You Give A Moose A Muffin》如果你给驼鹿松饼](https://www.toutiao.com/a6789768164658905603/)
 - [寒假读经典：这20部英语儿童读物，孩子绝对不能错过](https://www.toutiao.com/a6773986450082890251/)
 
-<br/>
+<br />
 
 ## 精彩小视频
 
@@ -238,7 +240,7 @@
 - [狼到底多聪明？这是狼用眼神与乌鸦沟通捕猎的真实场景，被震撼了](https://www.ixigua.com/7090058006485795365)
 - [世界首创：日本瞬间冷冻技术！仅仅数十秒，活鱼成冻鱼](https://www.ixigua.com/7094270518450520589)
 
-<br/>
+<br />
 
 ## Other information
 
@@ -297,7 +299,7 @@
 - [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
 - [彳亍](https://baike.baidu.com/item/彳亍/51329)
 
-<br/>
+<br />
 
 #### 什么叫科学？（摘自：[德国大学教授如此评价中医，让中国人汗颜](https://links.jianshu.com/go?to=https%3A%2F%2Fwww.toutiao.com%2Fi6723044015240905224)）
 
@@ -308,7 +310,7 @@
 
 按照这三条标准，可大致将二十世纪的各种科学分为精密科学、原始科学和伪科学。少数学科属于精密科学，如物理、化学、天文学几乎完全符合三条标准，是精密科学。多数学科只符合第一条，可称为原始科学。离开了取得正面经验的确凿事实，则应称为伪科学。在现代医学（西医）中，绝大多数是原始科学的知识，只有一小部分是精密科学，其中还有较大的伪科学的成份。与此相反，中医除了还有一部份是原始科学和伪科学的残余外，就绝大部分或者主体而言，应当称得上是精密科学。
 
-<br/>
+<br />
 
 ## 物理相关
 
@@ -339,7 +341,7 @@
 - [解读神秘的弦理论，或许它真的就是最终的宇宙真理](https://www.toutiao.com/i7062664832188924447/)
 - [木星是个气态星球，但并非是个气球，所以我们不能穿过去](https://www.toutiao.com/article/7082795114363372072/)
 
-<br/>
+<br />
 
 ## 码农圈八卦
 
@@ -349,7 +351,7 @@
 - [AMD/Intel/Nvidia加速推进Resizable BAR落地 游戏性能提升5-10%](https://www.toutiao.com/i6928553413164663309/)
 - [科普 | 自然界也有源代码：一位程序员逆向工程了辉瑞新冠疫苗](https://www.toutiao.com/i6911169554471354888/)
 
-<br/>
+<br />
 
 ## 动物相关
 
@@ -358,7 +360,7 @@
 - [what？昆虫们其实是外星人？](https://www.toutiao.com/a6801657902638563851/)
 - [在鼠类的内战里，人类可能只是一颗被摆布的棋子？](https://www.toutiao.com/i6894436591301820939/)
 
-<br/>
+<br />
 
 ## 涼宮ハルヒの憂鬱
 
