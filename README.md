@@ -112,7 +112,6 @@
 - [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
 - [萝莉的时间OAD](https://www.yhdmp.net/vp/7125-1-0.html)
 - [萝莉的时间 2学期](https://www.yhdmp.net/vp/9136-1-0.html)
-- [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
 - [暗杀教室第一季](https://www.55cc.cc/dongman/3994/)
 - [暗杀教室第二季](https://www.55cc.cc/dongman/14347/)
 - [天降之物第一季](http://m.imomoe.in/view/4975.html)
@@ -155,6 +154,9 @@
 - [Estab-Life Great Escape](https://www.yhdmp.live/showp/22249.html)
 - [通灵王](http://m.yhdm.tv/show/923.html)
 - [缘之空](https://m.tmdm.tv/yuanzhikong/)
+- [86-不存在的地域](https://www.yhdmp.live/showp/21143.html)
+- [86-不存在的地域- 第二季](https://www.yhdmp.live/showp/21331.html)
+- [进击的巨人第一季](https://www.55cc.cc/dongman/13078/player-1-1.html)
 - 进击的巨人观看次序：
 ![giant.jpg](https://upload-images.jianshu.io/upload_images/8136508-923ee0ade5b464c6.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
