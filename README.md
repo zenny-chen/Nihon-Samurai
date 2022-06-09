@@ -89,7 +89,8 @@
 - [Campanella](https://legendofheroes.fandom.com/wiki/Campanella)
 - [洛克人8重要收集要素，40颗螺丝全收集攻略](http://pc.tgbus.com/danji_207/91633/)
 - [《洛克人X遗产合集》图文攻略](https://www.gamersky.com/handbook/201807/1077061.shtml)
-- LAMUNATION-international-18+ Patch: [LAMUNATION-How-to-play](https://gitee.com/zenny-chen/nihon-samurai/blob/master/LAMUNATION-How-to-play.png)
+- LAMUNATION-international-18+ Patch: 
+![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
