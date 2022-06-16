@@ -162,6 +162,7 @@
 - 进击的巨人观看次序：
 ![giant.jpg](https://upload-images.jianshu.io/upload_images/8136508-923ee0ade5b464c6.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 - [恶魔人Crybaby](http://www.poxiaotv.com/vod-play-id-75938-src-1-num-1.html)
+- [地海战记（中文配音）](https://v.pptv.com/show/dV4npQ1z4yGEAmo.html)
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
 - [听神明的话](http://www.cu518.com/xingchen_play/135218-3-1.html)
 - [镰仓殿的13人](http://v.shensgo.com/vodplay/239724-5-1.html)
