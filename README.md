@@ -122,6 +122,7 @@
 - [无职转生到了异世界就拿出真本事](https://www.wlyy5.com/voddetail/182891.html)
 - [不正经的魔术讲师与禁忌教典](https://www.yhdmp.live/vp/17104-1-0.html)
 - [妖精的旋律](https://www.yhdmp.live/vp/4083-2-0.html)
+- [狼与香辛料](https://www.yhdmp.live/showp/8086.html)
 - [未来日记](https://www.yhdmp.live/vp/11094-1-0.html)
 - [大剑](http://www.91m.cc/vodhtml/2047.html)
 - [Another](http://www.91m.cc/vodhtml/7566.html)
