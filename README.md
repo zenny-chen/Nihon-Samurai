@@ -106,6 +106,12 @@
 
 <br />
 
+## Windows 11下解决《侍魂晓》（Samurai Rebooot）无法启动的问题
+
+在系统环境变量下添加：**`OPENSSL_ia32cap`**，将其值设置为：**`~0x20000000`**
+
+<br />
+
 ## 电影/电视剧
 
 - [樱花动漫(P)－专注动漫的门户网站 (yhdmp.live)](https://www.yhdmp.live/)
