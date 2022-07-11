@@ -158,6 +158,7 @@
 - [达尔文游戏](https://www.yhdmp.live/showp/20106.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [日本动漫：妖精的旋律](http://www.imomoe.in/view/2708.html)
+- [彻夜之歌](https://www.yhdmp.live/showp/22173.html)
 - [派对浪客诸葛孔明](https://www.yhdmp.net/vp/22172-1-0.html)
 - [喧哗番长 乙女 Girl Beats Boys](https://www.yhdmp.net/showp/17368.html)
 - [谜之彼女X](https://www.yhdmp.live/showp/12102.html)
