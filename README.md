@@ -172,6 +172,8 @@
 - [CROSS ANGE 天使与龙的轮舞](https://www.yhdmp.live/showp/14109.html)
 - [Estab-Life Great Escape](https://www.yhdmp.live/showp/22249.html)
 - [曾几何时天魔的黑兔](https://m.yhdmp.live/showp/11169.html)
+- [Lycoris Recoil](https://www.yhdmp.live/showp/22224.html)
+- [百武装战记](https://www.yhdmp.live/showp/16085.html)
 - [通灵王](http://m.yhdm.tv/show/923.html)
 - [缘之空](https://m.tmdm.tv/yuanzhikong/)
 - [86-不存在的地域](https://www.yhdmp.live/showp/21143.html)
