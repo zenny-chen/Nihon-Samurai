@@ -287,6 +287,7 @@
 - [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
 - XBOX手柄按键与PS手柄按键对应 ——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △ 
 - [《圣斗士星矢》黄金圣斗士必杀技大全（原文+翻译）](https://www.toutiao.com/article/7108356477714252320/)
+- [什么是打击感？从春日野樱的重拳动作说起](https://www.toutiao.com/article/7124495631917679119/)
 - [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 - [國際音標](https://gan.wikipedia.org/wiki/國際音標)
 - [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
