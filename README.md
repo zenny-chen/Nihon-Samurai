@@ -147,6 +147,7 @@
 - [黑暗圣经](http://www.91m.cc/vodhtml/22491.html)
 - [异世界魔王与召唤少女的奴隶魔术Ω](http://www.91m.cc/vodhtml/16616.html)
 - [鬼父](http://www.91m.cc/vodhtml/21798.html)
+- [要听爸爸的话！](https://www.yhdmp.live/showp/12091.html)
 - [樱通信](http://www.91m.cc/vodhtml/2101.html)
 - [我的狐仙女友：真夏的大谢肉祭](http://www.91m.cc/vodhtml/22312.html)
 - [无赖勇者的鬼畜美学](http://www.91m.cc/vodhtml/1432.html)
