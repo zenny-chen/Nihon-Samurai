@@ -180,6 +180,8 @@
 - [在异世界迷宫开后宫](https://www.yhdmp.live/showp/22247.html)
 - [无赖勇者的鬼畜美学](https://www.yhdmp.live/showp/12138.html)
 - [天空侵犯](https://www.yhdmp.live/showp/21106.html)
+- [姐姐的妄想日记OAD](https://www.yhdmp.live/showp/14215.html)
+- [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
 - [通灵王](http://m.yhdm.tv/show/923.html)
 - [缘之空](https://m.tmdm.tv/yuanzhikong/)
 - [86-不存在的地域](https://www.yhdmp.live/showp/21143.html)
