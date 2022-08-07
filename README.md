@@ -149,6 +149,7 @@
 - [鬼父](http://www.91m.cc/vodhtml/21798.html)
 - [兔耳冒险谭](http://www.sz-dffs.com/play/175797.html)
 - [イエナイコト The Animation](https://javidol.org/mv-6ya-%E3%82%A4%E3%82%A8%E3%83%8A%E3%82%A4%E3%82%B3%E3%83%88-the-animation%E4%B8%AD.html)
+- [ランス01 光をもとめて The Animation 第1話「ランス、起つ！！」](https://javidol.org/mv-6SH-%E3%83%A9%E3%83%B3%E3%82%B901-%E5%85%89%E3%82%92%E3%82%82%E3%81%A8%E3%82%81%E3%81%A6-the-animation-%E7%AC%AC1%E8%A9%B1%E3%80%8C%E3%83%A9%E3%83%B3%E3%82%B9%E3%80%81%E8%B5%B7%E3%81%A4%EF%BC%81%EF%BC%81%E3%80%8D%EF%BC%88%E4%B8%AD%EF%BC%89.html)
 - [ピンクパイナップルランス01 光をもとめて The Animation 第4話「そして、王道へhellip;」](https://javidol.org/mv-1xW1-%E3%83%94%E3%83%B3%E3%82%AF%E3%83%91%E3%82%A4%E3%83%8A%E3%83%83%E3%83%97%E3%83%AB%E3%83%A9%E3%83%B3%E3%82%B901-%E5%85%89%E3%82%92%E3%82%82%E3%81%A8%E3%82%81%E3%81%A6-the-animation-%E7%AC%AC4%E8%A9%B1%E3%80%8C%E3%81%9D%E3%81%97%E3%81%A6%E3%80%81%E7%8E%8B%E9%81%93%E3%81%B8hellip;%E3%80%8D.html)
 - [ピンクパイナップルlovelytimes;cation The Animation ＃2 「初恋の日々、再び◆」](https://javidol.org/mv-1xwI-%E3%83%94%E3%83%B3%E3%82%AF%E3%83%91%E3%82%A4%E3%83%8A%E3%83%83%E3%83%97%E3%83%ABlovelytimes;cation-the-animation-%EF%BC%832-%E3%80%8C%E5%88%9D%E6%81%8B%E3%81%AE%E6%97%A5%E3%80%85%E3%80%81%E5%86%8D%E3%81%B3%E2%97%86%E3%80%8D-%E8%A3%B8%E8%81%8A%E7%9B%B4%E6%92%AD-uu792com.html)
 - [Kurumi Katase Has Hairy Crack Aroused And Fucked With Vibrators](https://javidol.org/mv-2TJL-kurumi-katase-has-hairy-crack-aroused-and-fucked-with-vibrators.html)
