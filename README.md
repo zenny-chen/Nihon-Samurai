@@ -197,6 +197,8 @@
 - [侵略！！乌贼娘 OAD](https://www.yhdmp.live/showp/12190.html)
 - [通灵王](http://m.yhdm.tv/show/923.html)
 - [缘之空](https://m.tmdm.tv/yuanzhikong/)
+- [十字架与吸血鬼](https://www.yhdmp.live/showp/8117.html)
+- [十字架与吸血鬼 CAPU2](https://www.yhdmp.live/showp/8118.html)
 - [女忍者椿的心事](https://www.yhdmp.live/showp/22151.html)
 - [86-不存在的地域](https://www.yhdmp.live/showp/21143.html)
 - [86-不存在的地域- 第二季](https://www.yhdmp.live/showp/21331.html)
