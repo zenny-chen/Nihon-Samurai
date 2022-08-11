@@ -189,6 +189,7 @@
 - [天空侵犯](https://www.yhdmp.live/showp/21106.html)
 - [姐姐的妄想日记OAD](https://www.yhdmp.live/showp/14215.html)
 - [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
+- [日常系的异能战斗](https://www.yhdmp.live/showp/14158.html)
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
 - [Engage Kiss](https://www.yhdmp.live/showp/22318.html)
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
