@@ -183,6 +183,7 @@
 - [曾几何时天魔的黑兔](https://m.yhdmp.live/showp/11169.html)
 - [Lycoris Recoil](https://www.yhdmp.live/showp/22224.html)
 - [百武装战记](https://www.yhdmp.live/showp/16085.html)
+- [最弱无败神装机龙《巴哈姆特》](https://www.yhdmp.live/showp/16088.html)
 - [如果究极进化的完全沉浸RPG比现实更垃圾的话](https://www.yhdmp.live/showp/21191.html)
 - [在异世界迷宫开后宫](https://www.yhdmp.live/showp/22247.html)
 - [无赖勇者的鬼畜美学](https://www.yhdmp.live/showp/12138.html)
