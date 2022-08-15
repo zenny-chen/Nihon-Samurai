@@ -187,6 +187,8 @@
 - [如果究极进化的完全沉浸RPG比现实更垃圾的话](https://www.yhdmp.live/showp/21191.html)
 - [在异世界迷宫开后宫](https://www.yhdmp.live/showp/22247.html)
 - [无赖勇者的鬼畜美学](https://www.yhdmp.live/showp/12138.html)
+- [摇曳庄的幽奈小姐](https://www.yhdmp.live/showp/18214.html)
+- [摇曳庄的幽奈小姐OAD](https://www.yhdmp.live/showp/18215.html)
 - [天空侵犯](https://www.yhdmp.live/showp/21106.html)
 - [姐姐的妄想日记OAD](https://www.yhdmp.live/showp/14215.html)
 - [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
