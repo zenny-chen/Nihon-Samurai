@@ -191,6 +191,8 @@
 - [摇曳庄的幽奈小姐OAD](https://www.yhdmp.live/showp/18215.html)
 - [天空侵犯](https://www.yhdmp.live/showp/21106.html)
 - [姐姐的妄想日记OAD](https://www.yhdmp.live/showp/14215.html)
+- [淫乱的青酱不能学习](https://www.yhdmp.live/showp/19194.html)
+- [天籁人偶](https://www.yhdmp.live/showp/22262.html)
 - [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
 - [日常系的异能战斗](https://www.yhdmp.live/showp/14158.html)
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
