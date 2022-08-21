@@ -157,6 +157,7 @@
 - [Sakura Sakurada Fucked Hard](https://javidol.org/mv-25CY-sakura-sakurada-fucked-hard.html)
 - [要听爸爸的话！](https://www.yhdmp.live/showp/12091.html)
 - [樱通信](http://www.91m.cc/vodhtml/2101.html)
+- [顺其自然的日子](https://www.yhdmp.live/showp/20238.html)
 - [我的狐仙女友：真夏的大谢肉祭](http://www.91m.cc/vodhtml/22312.html)
 - [恶魔高校D×D](http://www.91m.cc/vodhtml/6729.html)
 - [吸血鬼同盟](https://m.dm530p.live/view/11127.html)
