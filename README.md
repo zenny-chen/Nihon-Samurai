@@ -205,6 +205,7 @@
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
 - [Engage Kiss](https://www.yhdmp.live/showp/22318.html)
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
+- [勇者辞职不干了](https://www.yhdmp.live/showp/22146.html)
 - [我家的女仆太烦人了！](https://www.yhdmp.live/showp/18317.html)
 - [钢铁新娘](https://www.yhdmp.live/showp/8145.html)
 - [侵略！乌贼娘](https://www.yhdmp.live/showp/10146.html)
