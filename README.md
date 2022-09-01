@@ -170,7 +170,7 @@
 - [斩！赤红之瞳](https://www.yhdmp.live/showp/14111.html)
 - [白箱 SHIROBAKO](https://www.acfun.cn/bangumi/aa6000984)
 - [日本动漫：缘之空](http://www.imomoe.in/view/2883.html)
-- [乱步奇谭：拉普拉斯的游戏](https://www.ixigua.com/cinema/album/7PYfc38gMxL_7PYfgAvRsOM/)
+- [乱步奇谭 Game of Laplace](https://www.yhdmp.live/showp/15129.html)
 - [达尔文游戏](https://www.yhdmp.live/showp/20106.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [日本动漫：妖精的旋律](http://www.imomoe.in/view/2708.html)
