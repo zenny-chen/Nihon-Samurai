@@ -207,6 +207,7 @@
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
 - [Engage Kiss](https://www.yhdmp.live/showp/22318.html)
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
+- [转生贤者的异世界生活](https://www.yhdmp.live/showp/22120.html)
 - [勇者辞职不干了](https://www.yhdmp.live/showp/22146.html)
 - [尤利西斯 贞德与炼金骑士](https://www.yhdmp.live/showp/18308.html)
 - [我家的女仆太烦人了！](https://www.yhdmp.live/showp/18317.html)
