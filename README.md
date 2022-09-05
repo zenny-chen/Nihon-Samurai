@@ -234,6 +234,7 @@
 - [我是大哥大](http://www.vodxc.com/JPJ/woshidageda/)
 - [听神明的话](http://www.cu518.com/xingchen_play/135218-3-1.html)
 - [镰仓殿的13人](http://v.shensgo.com/vodplay/239724-5-1.html)
+- [洗屋](https://www.paipaifan.com/voddetail/97134.html)
 - [哭泣女人的诅咒](http://11k.la/KBP/48025_paly_3.shtml)
 - [尸忆](https://www.55cc.cc/dianying/21911/player-1-1.html)（[严正岚](https://baike.baidu.com/item/严正岚/2852670)）
 - [昆池岩](https://www.juji.tv/dianying/kunchiyan/play-1911-0-1.html)
