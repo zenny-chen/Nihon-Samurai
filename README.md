@@ -213,6 +213,7 @@
 - [勇者辞职不干了](https://www.yhdmp.live/showp/22146.html)
 - [尤利西斯 贞德与炼金骑士](https://www.yhdmp.live/showp/18308.html)
 - [我家的女仆太烦人了！](https://www.yhdmp.live/showp/18317.html)
+- [春原庄的管理人小姐](https://www.yhdmp.live/showp/18257.html)
 - [钢铁新娘](https://www.yhdmp.live/showp/8145.html)
 - [侵略！乌贼娘](https://www.yhdmp.live/showp/10146.html)
 - [侵略！乌贼娘 第二季](https://www.yhdmp.live/showp/11168.html)
