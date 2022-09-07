@@ -274,6 +274,8 @@
 - [TED演讲：别坚持说英语！](https://www.ixigua.com/i6798798383373877767/)
 - [TED演讲：你想做什么样的工作](https://www.ixigua.com/i6814457780464779779/)
 - [奥巴马--毕业典礼精彩演讲，亚利桑那州立大学，英文字幕！](https://www.ixigua.com/i6763868176498295299/)
+- [“暴风雨”中上任，英国首相特拉斯就职演讲](https://www.toutiao.com/video/7140562759556858371/)
+- [新MacBook Pro 广告合集](https://www.bilibili.com/video/BV1zs411s7ac)
 - [当孩子不喜欢数学时，给他看这演讲：数学，是理解世界的秘诀！](https://www.ixigua.com/i6726058021404803592/)
 - [英语干货：第37集，how to talk about relationships in english](https://www.ixigua.com/i6766140616620376580/)
 - [英语不是一味死记硬背，语言学家史蒂芬.克拉申谈如何学习语言](https://www.ixigua.com/7094567078224790046)
