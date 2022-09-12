@@ -175,6 +175,7 @@
 - [乱步奇谭 Game of Laplace](https://www.yhdmp.live/showp/15129.html)
 - [达尔文游戏](https://www.yhdmp.live/showp/20106.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
+- [伊甸星原](https://www.yhdmp.live/showp/21139.html)
 - [日本动漫：妖精的旋律](http://www.imomoe.in/view/2708.html)
 - [彻夜之歌](https://www.yhdmp.live/showp/22173.html)
 - [精灵使的剑舞](https://www.yhdmp.live/showp/14097.html)
