@@ -159,6 +159,7 @@
 - [看得见的女孩](https://www.yhdmp.live/showp/21230.html)
 - [要听爸爸的话！](https://www.yhdmp.live/showp/12091.html)
 - [亚人酱有话要说](https://www.yhdmp.live/showp/17094.html)
+- [美少女死神还我H之魂](https://www.yhdmp.live/showp/10107.html)
 - [樱通信](http://www.91m.cc/vodhtml/2101.html)
 - [顺其自然的日子](https://www.yhdmp.live/showp/20238.html)
 - [我的狐仙女友：真夏的大谢肉祭](http://www.91m.cc/vodhtml/22312.html)
