@@ -178,6 +178,7 @@
 - [末日时在做什么？有没有空？可以来拯救吗？](https://www.yhdmp.live/showp/17113.html)
 - [乱步奇谭 Game of Laplace](https://www.yhdmp.live/showp/15129.html)
 - [达尔文游戏](https://www.yhdmp.live/showp/20106.html)
+- [朋友游戏](https://www.yhdmp.live/showp/22165.html)
 - [DARLING in the FRANXX](http://www.yhdm.tv/show/4060.html)
 - [伊甸星原](https://www.yhdmp.live/showp/21139.html)
 - [灰色的果实](https://www.yhdmp.live/showp/14093.html)
