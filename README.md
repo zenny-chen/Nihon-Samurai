@@ -174,6 +174,7 @@
 - [地狱少女](http://www.91m.cc/vodhtml/13919.html)
 - [斩首循环 蓝色学者与戏言跟班](https://www.yhdmp.net/showp/16256.html)
 - [斩！赤红之瞳](https://www.yhdmp.live/showp/14111.html)
+- [魔法少女网站](https://www.yhdmp.live/showp/18174.html)
 - [白箱 SHIROBAKO](https://www.acfun.cn/bangumi/aa6000984)
 - [末日时在做什么？有没有空？可以来拯救吗？](https://www.yhdmp.live/showp/17113.html)
 - [乱步奇谭 Game of Laplace](https://www.yhdmp.live/showp/15129.html)
