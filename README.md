@@ -190,6 +190,7 @@
 - [妖精的旋律](http://www.imomoe.in/view/2708.html)
 - [彻夜之歌](https://www.yhdmp.live/showp/22173.html)
 - [精灵使的剑舞](https://www.yhdmp.live/showp/14097.html)
+- [为了女儿，我说不定连魔王都能干掉](https://www.yhdmp.live/showp/19143.html)
 - [最近雇佣的女仆有点奇怪](https://www.yhdmp.live/showp/22380.html)
 - [羁绊者](https://www.yhdmp.live/showp/16160.html)
 - [无彩限的怪灵世界](https://www.yhdmp.live/showp/16185.html)
