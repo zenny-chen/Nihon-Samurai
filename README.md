@@ -235,6 +235,7 @@
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
 - [转生贤者的异世界生活](https://www.yhdmp.live/showp/22120.html)
 - [勇者辞职不干了](https://www.yhdmp.live/showp/22146.html)
+- [金装的维尔梅～濒临堕落的魔法师和最强的灾厄一起冲入魔法世界～](https://www.yhdmp.live/showp/22296.html)
 - [尤利西斯 贞德与炼金骑士](https://www.yhdmp.live/showp/18308.html)
 - [穷神](https://www.yhdmp.live/showp/12130.html)
 - [不正经的魔术讲师与禁忌教典](https://www.yhdmp.live/showp/17104.html)
