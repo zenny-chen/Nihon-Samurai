@@ -228,6 +228,8 @@
 - [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
 - [日常系的异能战斗](https://www.yhdmp.live/showp/14158.html)
 - [惊爆游戏](https://www.yhdmp.live/showp/12141.html)
+- [悠久持有者！～魔法老师! 2～](https://www.yhdmp.live/showp/17160.html)
+- [悠久持有者！OAD](https://www.yhdmp.live/showp/17162.html)
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
 - [Engage Kiss](https://www.yhdmp.live/showp/22318.html)
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
