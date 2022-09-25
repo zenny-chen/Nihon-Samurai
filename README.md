@@ -216,6 +216,8 @@
 - [摇曳庄的幽奈小姐](https://www.yhdmp.live/showp/18214.html)
 - [摇曳庄的幽奈小姐OAD](https://www.yhdmp.live/showp/18215.html)
 - [天空侵犯](https://www.yhdmp.live/showp/21106.html)
+- [我要成为世界最强偶像](https://www.yhdmp.live/showp/13156.html)
+- [风之圣痕](https://www.yhdmp.live/showp/7142.html)
 - [姐姐的妄想日记OAD](https://www.yhdmp.live/showp/14215.html)
 - [淫乱的青酱不能学习](https://www.yhdmp.live/showp/19194.html)
 - [骚动时节的少女们啊](https://www.yhdmp.live/showp/19247.html)
