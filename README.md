@@ -232,6 +232,7 @@
 - [悠久持有者！～魔法老师! 2～](https://www.yhdmp.live/showp/17160.html)
 - [悠久持有者！OAD](https://www.yhdmp.live/showp/17162.html)
 - [继母的拖油瓶是我的前女友](https://www.yhdmp.live/showp/22255.html)
+- [声之形](https://www.yhdmp.live/showp/16242.html)
 - [Engage Kiss](https://www.yhdmp.live/showp/22318.html)
 - [异世界药局](https://www.yhdmp.live/showp/22299.html)
 - [转生贤者的异世界生活](https://www.yhdmp.live/showp/22120.html)
