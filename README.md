@@ -116,6 +116,8 @@
 ## 电影/电视剧
 
 - [樱花动漫(P)－专注动漫的门户网站 (yhdmp.live)](https://www.yhdmp.live/)
+- [OVERLORD全人物等级排名 技压群雄的英雄指甲刀](https://www.toutiao.com/video/7106069842301878798/)
+- [OVERLORD全人物等级排名 下](https://www.toutiao.com/video/7107104547482534431/)
 - [日在校园](http://www.yhdm.tv/show/3728.html)
 - [萝莉的时间](http://v.pptv.com/page/Y8SicPaULe7kcmmY.html?rcc_id=baiduchuisou)
 - [萝莉的时间OAD](https://www.yhdmp.net/vp/7125-1-0.html)
