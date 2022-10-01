@@ -149,6 +149,7 @@
 - [新妹魔王的契约者](http://www.91m.cc/vodhtml/12963.html)
 - [黑暗圣经](http://www.91m.cc/vodhtml/22491.html)
 - [异世界魔王与召唤少女的奴隶魔术Ω](http://www.91m.cc/vodhtml/16616.html)
+- [后宫露营！](https://www.yhdmp.live/showp/22504.html)
 - [鬼父](http://www.91m.cc/vodhtml/21798.html)
 - [兔耳冒险谭](http://www.sz-dffs.com/play/175797.html)
 - [イエナイコト The Animation](https://javidol.org/mv-6ya-%E3%82%A4%E3%82%A8%E3%83%8A%E3%82%A4%E3%82%B3%E3%83%88-the-animation%E4%B8%AD.html)
