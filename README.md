@@ -97,6 +97,7 @@
 - [《双截龙4》全人物出招表 主角、敌人及BOSS出招表](https://www.gamersky.com/handbook/201702/866140.shtml)
 - [双截龙4实用连招推荐 简单好用连招操作技巧汇总](https://m.3dmgame.com/mip/gl/3627786.html)
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
+- [《火焰纹章 回声》全角色加入条件及相关攻略](https://www.bilibili.com/read/cv16120617)
 - [FC冒险岛全流程，开局一个肚子，活着全靠吃](https://www.toutiao.com/video/7080496326433374757/)
 
 <br />
@@ -245,6 +246,7 @@
 - [转生贤者的异世界生活](https://www.yhdmp.live/showp/22120.html)
 - [转生成为魔剑](https://www.yhdmp.live/showp/22142.html)
 - [点满农民相关技能后，不知为何就变强了。](https://www.yhdmp.live/showp/22392.html)
+- [被勇者队伍开除的驯兽师，邂逅最强种的猫耳少女](https://www.yhdmp.live/showp/22409.html)
 - [勇者辞职不干了](https://www.yhdmp.live/showp/22146.html)
 - [金装的维尔梅～濒临堕落的魔法师和最强的灾厄一起冲入魔法世界～](https://www.yhdmp.live/showp/22296.html)
 - [尤利西斯 贞德与炼金骑士](https://www.yhdmp.live/showp/18308.html)
