@@ -79,6 +79,13 @@
 
 <br />
 
+## 火焰纹章（Fire Emblem）系列
+
+- [《火焰纹章 回声》全角色加入条件及相关攻略](https://www.bilibili.com/read/cv16120617)
+- [《火焰之纹章回声：另一个英雄王》角色间支援对话攻略](http://www.a9vg.com/article/28116)
+
+<br />
+
 ## 其他游戏攻略
 
 - Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
@@ -97,7 +104,6 @@
 - [《双截龙4》全人物出招表 主角、敌人及BOSS出招表](https://www.gamersky.com/handbook/201702/866140.shtml)
 - [双截龙4实用连招推荐 简单好用连招操作技巧汇总](https://m.3dmgame.com/mip/gl/3627786.html)
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
-- [《火焰纹章 回声》全角色加入条件及相关攻略](https://www.bilibili.com/read/cv16120617)
 - [FC冒险岛全流程，开局一个肚子，活着全靠吃](https://www.toutiao.com/video/7080496326433374757/)
 
 <br />
@@ -208,6 +214,7 @@
 - [桃剑](https://www.yhdmp.live/showp/14251.html)
 - [CROSS ANGE 天使与龙的轮舞](https://www.yhdmp.live/showp/14109.html)
 - [Estab-Life Great Escape](https://www.yhdmp.live/showp/22249.html)
+- [A.I.C.O. -Incarnation-](https://www.yhdmp.live/showp/18116.html)
 - [曾几何时天魔的黑兔](https://m.yhdmp.live/showp/11169.html)
 - [Lycoris Recoil](https://www.yhdmp.live/showp/22224.html)
 - [百武装战记](https://www.yhdmp.live/showp/16085.html)
