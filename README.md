@@ -358,6 +358,7 @@
 - [8岁俄罗斯拳击女vs5岁日本功夫小子 严酷的训练！](https://www.bilibili.com/video/av10460294)
 - [10岁的日本小女孩练得一手恐怖的刀法](https://www.ixigua.com/i6426665869355745538/)
 - [他曾是世界上最强壮的男孩，如今12年过去了](https://www.toutiao.com/video/7138664997067948582/)
+- [青少年健美争霸赛：三位小鲜肉人小鬼大，你最喜欢哪一个？](https://www.toutiao.com/video/7152338436807098888/)
 - [是来洗衣服了不是游泳的](https://www.toutiao.com/video/7139039935109169697/)
 - [十月初还有谁敢游泳](https://www.toutiao.com/video/7150446453679194636/)
 - [从小练就的本事，你们猜猜是为了什么](https://www.toutiao.com/video/7148429785494979086/)
@@ -377,6 +378,7 @@
 - [生命 生命的挑战](https://www.ixigua.com/cinema/album/86ZII1uxioU_871VAmtX3u6/)
 - [狼到底多聪明？这是狼用眼神与乌鸦沟通捕猎的真实场景，被震撼了](https://www.ixigua.com/7090058006485795365)
 - [世界首创：日本瞬间冷冻技术！仅仅数十秒，活鱼成冻鱼](https://www.ixigua.com/7094270518450520589)
+- [I Draw My Life (baidu.com)](https://www.baidu.com/video/page?pd=video_page&nid=12634451803351124389&sign=16492258891414788730&word=I+draw+My+life&oword=I+draw+My+life&atn=index&frsrcid=1508&ext=%7B%22jsy%22%3A1%7D&top=%7B%22sfhs%22%3A1%2C%22_hold%22%3A2%7D&sl=4&fr0=A&fr1=A&ms=1&lid=11306898228913370301&referlid=11306898228913370301&frorder=2&_t=1665647723675)
 
 <br />
 
