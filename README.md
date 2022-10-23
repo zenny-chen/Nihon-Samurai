@@ -215,6 +215,8 @@
 - [喧哗番长 乙女 Girl Beats Boys](https://www.yhdmp.net/showp/17368.html)
 - [谜之彼女X](https://www.yhdmp.live/showp/12102.html)
 - [魔乳秘剑帖](https://www.yhdmp.live/showp/11155.html)
+- [魔剑姬](https://www.yhdmp.live/showp/11121.html)
+- [魔剑姬 第二季](https://www.yhdmp.live/showp/14198.html)
 - [桃剑](https://www.yhdmp.live/showp/14251.html)
 - [CROSS ANGE 天使与龙的轮舞](https://www.yhdmp.live/showp/14109.html)
 - [Estab-Life Great Escape](https://www.yhdmp.live/showp/22249.html)
