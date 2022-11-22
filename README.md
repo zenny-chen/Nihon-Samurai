@@ -175,7 +175,6 @@
 - [亚人酱有话要说](https://www.yhdmp.live/showp/17094.html)
 - [美少女死神还我H之魂](https://www.yhdmp.live/showp/10107.html)
 - [你遭难了吗？](https://www.yhdmp.live/showp/19243.html)
-- [被勇者队伍开除的驯兽师，邂逅最强种的猫耳少女](https://www.yhdmp.live/showp/22409.html)
 - [樱通信](http://www.91m.cc/vodhtml/2101.html)
 - [顺其自然的日子](https://www.yhdmp.live/showp/20238.html)
 - [我的狐仙女友：真夏的大谢肉祭](http://www.91m.cc/vodhtml/22312.html)
