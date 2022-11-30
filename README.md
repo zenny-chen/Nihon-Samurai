@@ -448,6 +448,7 @@
 - [多巴胺和内啡肽究竟有什么区别?](https://www.zhihu.com/question/19702951)
 - [史上最全的《异形》电影宇宙时间线整理（长文）](https://www.toutiao.com/a6867298261145911821/)
 - [病毒把人类搞死了，自己也死了，它的目的是什么？病毒与人类进化](https://www.toutiao.com/a6789549660819161608/) [病毒究竟有多厉害？BBC拍出了这部9.4分的科幻大片](https://www.toutiao.com/a6798899207408189966/)
+- [鱼鳃呼吸的原理：鱼类只能吸取水里氧气，并且多数只能用鳃来呼吸](https://www.toutiao.com/article/7171484828242641444/)
 - [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
 - [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
 - [彳亍](https://baike.baidu.com/item/彳亍/51329)
