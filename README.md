@@ -106,6 +106,7 @@
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
 - [FC冒险岛全流程，开局一个肚子，活着全靠吃](https://www.toutiao.com/video/7080496326433374757/)
 - [『天穂のサクナヒメ』オリジナルサントラ](https://www.famitsu.com/news/202110/27238747.html)
+- [天穂のサクナヒメ　アレンジアルバム　『実演楽曲集　奏　―かなで―』 - Epic Games Store](https://store.epicgames.com/ja/p/sakuna-of-rice-and-ruin--musical-arrangements)
 
 <br />
 
