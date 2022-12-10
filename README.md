@@ -11,6 +11,7 @@
 - [日本游戏为什么特别喜欢加入武士文化？](https://www.toutiao.com/a6825391155576832516/)
 - [为什么游戏里的闪避都是用“滚”的？](https://www.toutiao.com/a6834470294262907395/)
 - [史上最全的空手道术语发音表](https://www.docin.com/p-2080040221.html)
+- [过了一千多年，日本筝与中国古筝是否还有血缘关系？ ](https://baijiahao.baidu.com/s?id=1642651218457112167&wfr=spider&for=pc)
 - [《变形金刚》中的狂派工程部队挖地虎，成员很个性，组合成大力神](https://baijiahao.baidu.com/s?id=1624070933092796140)
 - [小猪佩奇（英国学前电视动画片）_百度百科 (baidu.com)](https://baike.baidu.com/item/%E5%B0%8F%E7%8C%AA%E4%BD%A9%E5%A5%87/12343674?fr=aladdin)
 - [FC游戏网页版](http://fc.my71.top/)
