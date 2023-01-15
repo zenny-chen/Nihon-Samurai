@@ -107,6 +107,7 @@
 - [双截龙4实用连招推荐 简单好用连招操作技巧汇总](https://m.3dmgame.com/mip/gl/3627786.html)
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
 - [FC冒险岛全流程，开局一个肚子，活着全靠吃](https://www.toutiao.com/video/7080496326433374757/)
+- [《牧场物语 橄榄镇与希望的大地》加工机大全](https://www.tgbus.com/news/150322)
 - [『天穂のサクナヒメ』オリジナルサントラ](https://www.famitsu.com/news/202110/27238747.html)
 - [天穂のサクナヒメ　アレンジアルバム　『実演楽曲集　奏　―かなで―』 - Epic Games Store](https://store.epicgames.com/ja/p/sakuna-of-rice-and-ruin--musical-arrangements)
 - [【天穂のサクナヒメ】大禍大龍（オオマガツオオミズチ）の戦い方や攻略情報](https://dencommu.com/sakunahime/juuki/oomizuti/)
