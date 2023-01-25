@@ -196,6 +196,7 @@
 - [斩！赤红之瞳](https://www.yhdmp.live/showp/14111.html)
 - [Code Geass 反叛的鲁路修](https://www.yhdmp.live/showp/6089.html)
 - [Code Geass 反叛的鲁路修 第二季](https://www.yhdmp.live/showp/8104.html)
+- [十二国记](https://www.yhpdm.com/showp/2104.html)
 - [幼女战记](https://www.yhdmp.live/showp/17095.html)
 - [幼女战记剧场版](https://www.yhdmp.live/showp/18085.html)
 - [幼女战记 第二季](https://www.yhdmp.live/showp/21322.html)
