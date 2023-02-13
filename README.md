@@ -252,6 +252,7 @@
 - [平凡职业成就世界最强](https://www.yhdmp.live/showp/18272.html)
 - [平凡职业成就世界最强 第二季](https://www.yhdmp.live/showp/20251.html)
 - [想要成为影之实力者](https://www.yhdmp.live/showp/22158.html)
+- [冰剑的魔术师将要统一世界](https://www.yhpdm.com/showp/22532.html)
 - [无赖勇者的鬼畜美学](https://www.yhdmp.live/showp/12138.html)
 - [摇曳庄的幽奈小姐](https://www.yhdmp.live/showp/18214.html)
 - [摇曳庄的幽奈小姐OAD](https://www.yhdmp.live/showp/18215.html)
