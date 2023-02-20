@@ -415,12 +415,6 @@
 
 - [https://www.flowvpx.com/](https://www.flowvpx.com/)：点击Login，登录后点击“采购”即可续费。
 - Windows下浏览器中按住ctrl再点击超链接则可直接在新标签栏中打开网页；macOS下则是按住command键。
-- [Learning-Markdown (Markdown 入门参考)](http://blog.didispace.com/books/learning-markdown/)
-- [GitHub所支持的语法高亮的编程语言](https://github.com/github/linguist/blob/master/lib/linguist/languages.yml)（如果存在 **`aliases`** 字段，则使用该字段下列出的某个标识符来标识此编程语言。）
-- [Syntax highlighting in markdown](https://support.codebasehq.com/articles/tips-tricks/syntax-highlighting-in-markdown)
-- [GitHub上README.md编写教程（基本语法）](https://blog.csdn.net/m0_37885651/article/details/86642692)
-- Gitee只支持NASM汇编语法高亮，即`nasm`。
-- [How to add color to Github's README.md file](https://stackoverflow.com/questions/11509830/how-to-add-color-to-githubs-readme-md-file)
 - [快来查一下，有多少人正在蹭你家的网？](https://www.toutiao.com/a6772405957730238988/)
 - [2020最新最全最详细家庭组网大全](https://www.toutiao.com/a6860751769761219083/)
 - [Wi-Fi 6来了。需要现在就更新家里的路由器吗？](https://www.toutiao.com/i6702807269836325384)
