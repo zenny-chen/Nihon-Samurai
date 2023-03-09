@@ -400,6 +400,7 @@
 - [日本讽刺短片：你的善良一文不值](https://www.ixigua.com/i6824005305127404045/)
 - [街霸音乐居然用交响乐演奏出来 立时高大上许多](https://www.ixigua.com/i6582310467010560526/)
 - [铁拳七 小雨妹子被壮汉毒打](https://www.ixigua.com/i6828520144394781184/)
+- [街头霸王2（春丽vs巴洛克）](https://tv.sohu.com/v/dXMvNjMyNzA4NTkvMjg5NTA1NDUuc2h0bWw=.html?src=pl)
 - [用吠陀占星术对2020年12月21日起世界可能将会发生大事件的推测](https://www.ixigua.com/6844902395915272717)
 - [人与自然：蜻蜓幼虫，变成蜻蜓的过程，太神奇了，谁见过幼虫？](https://www.ixigua.com/i6801807632198795788/)
 - [啄兄，你是一只正经的啄木鸟](https://www.ixigua.com/i6778039590411305476/)
