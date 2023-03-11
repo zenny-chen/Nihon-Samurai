@@ -436,6 +436,7 @@
 - [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 - [【声律启蒙】分段解释之十二侵原文及翻译](http://www.360doc.com/content/18/0805/22/8852259_775955423.shtml)
 - [【声律启蒙】分段解释之一东原文及翻译](http://www.360doc.com/content/18/0805/10/8852259_775814003.shtml)
+- [中文汉字字根——学习传统文化，提升家教智慧](https://app7emcf2e18097.h5.xiaoeknow.com/v2/course/alive/l_6401cf97e4b02685a44cea3b)
 - [商场里的 B1，B2层，这个“B”指哪个单词？](https://www.toutiao.com/a6805801853700276743/)
 - [最全“英语介词”用法，彩图高清可打印，再也不用担心孩子不会了](https://www.toutiao.com/a6813894423844225550/)
 - [各类话题“动词短语” 雅思口语，等级英语改错都能用到 下篇](https://www.toutiao.com/a6813908390067044868/)
