@@ -392,6 +392,7 @@
 - [准时起床的弟弟突然赖床，姐姐发现不对劲，掀开被子吓坏了](https://www.toutiao.com/video/7108660199015219720/)
 - [半夜不睡真能折腾](https://www.toutiao.com/video/7182231531841618467/)
 - [电影选段](https://www.toutiao.com/video/7193977144635359756/)
+- [太高了，尿裤子男孩不敢跳](https://www.toutiao.com/video/7205059657600074278/)
 - [12岁的日本足球小将石井久继横空出世，中国足球的未来在哪里？](https://www.ixigua.com/i6782793857168835072/)
 - [这是日本小学生的足球，这和我们的教育完全相反的](https://www.ixigua.com/i6781809609968452103/)
 - [看她踢球是种享受！日本17岁美少女大秀球技，足球界的赤木晴子](https://www.ixigua.com/i6808818995802669060/)
@@ -427,6 +428,7 @@
 - XBOX手柄按键与PS手柄按键对应 ——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △ 
 - [《圣斗士星矢》黄金圣斗士必杀技大全（原文+翻译）](https://www.toutiao.com/article/7108356477714252320/)
 - [什么是打击感？从春日野樱的重拳动作说起](https://www.toutiao.com/article/7124495631917679119/)
+- [动画为何如此吸引我们？——聊聊动画中那些稀奇古怪的文字](https://zhuanlan.zhihu.com/p/130497406?utm_id=0)
 - [【声律启蒙】分段解释之十二侵原文及翻译](http://www.360doc.com/content/18/0805/22/8852259_775955423.shtml)
 - [【声律启蒙】分段解释之一东原文及翻译](http://www.360doc.com/content/18/0805/10/8852259_775814003.shtml)
 - [中文汉字字根——学习传统文化，提升家教智慧](https://app7emcf2e18097.h5.xiaoeknow.com/v2/course/alive/l_6401cf97e4b02685a44cea3b)
