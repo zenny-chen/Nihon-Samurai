@@ -425,7 +425,7 @@
 - [GitHub再现神程序：1秒盗走所有账户密码，防不胜防](https://www.toutiao.com/i6891578531222913544/)
 - [上海一网通办](http://zwdt.sh.gov.cn/govPortals/index.do)
 - [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
-- XBOX手柄按键与PS手柄按键对应 ——  A <-> ✖ ，     B <-> 〇 ，     X <-> ⬜︎，     Y <-> △ 
+- XBOX手柄按键与PS手柄按键对应 —— X <-> ⬜︎，   Y <-> △ ，  B <-> 〇，  A <-> ✖  
 - [《圣斗士星矢》黄金圣斗士必杀技大全（原文+翻译）](https://www.toutiao.com/article/7108356477714252320/)
 - [什么是打击感？从春日野樱的重拳动作说起](https://www.toutiao.com/article/7124495631917679119/)
 - [动画为何如此吸引我们？——聊聊动画中那些稀奇古怪的文字](https://zhuanlan.zhihu.com/p/130497406?utm_id=0)
