@@ -85,6 +85,7 @@
 
 - [《火焰纹章 回声》全角色加入条件及相关攻略](https://www.bilibili.com/read/cv16120617)
 - [《火焰之纹章回声：另一个英雄王》角色间支援对话攻略](http://www.a9vg.com/article/28116)
+- [《火焰之纹章if-白夜王国》结婚与生子系统详解 孩子技能与转职一览](https://3g.ali213.net/gl/html/74065.html)
 
 <br />
 
