@@ -441,6 +441,7 @@
 - [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 - [App怎么读？null怎么读？这个GitHub项目要收藏起来](https://www.toutiao.com/i7058819858724635172/)
 - [各种标点符号用英文如何表达？](https://mp.weixin.qq.com/s?__biz=MzIyNDI3MTIxNg==&mid=2651146532&idx=1&sn=6c22c8295fd89d2904e9280e00b6352a&chksm=f3e0673bc497ee2da9b9d4373b6e26811bddb685ed0e636f82a8dc7cb1209075f3180e70ea22&scene=27)
+- [常见符号英文怎么说？](https://www.toutiao.com/video/7211349881984732473/)
 - [计算机符号的英文名,【常见符号英文名称】英文名称](https://blog.csdn.net/weixin_32566515/article/details/119157356)
 - [商场里的 B1，B2层，这个“B”指哪个单词？](https://www.toutiao.com/a6805801853700276743/)
 - [最全“英语介词”用法，彩图高清可打印，再也不用担心孩子不会了](https://www.toutiao.com/a6813894423844225550/)
