@@ -251,6 +251,7 @@
 - [最弱无败神装机龙《巴哈姆特》](https://www.yhdmp.live/showp/16088.html)
 - [如果究极进化的完全沉浸RPG比现实更垃圾的话](https://www.yhdmp.live/showp/21191.html)
 - [在异世界迷宫开后宫](https://www.yhdmp.live/showp/22247.html)
+- [女神的露天咖啡厅](https://www.yhpdm.com/showp/22415.html)
 - [带着智能手机闯荡异世界](https://www.yhdmp.live/showp/17145.html)
 - [带着智能手机闯荡异世界 第二季](https://www.yhdmp.live/showp/22344.html)
 - [平凡职业成就世界最强](https://www.yhdmp.live/showp/18272.html)
