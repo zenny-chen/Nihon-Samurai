@@ -444,7 +444,7 @@
 - [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 - [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
 - [App怎么读？null怎么读？这个GitHub项目要收藏起来](https://www.toutiao.com/i7058819858724635172/)
-- [各种标点符号用英文如何表达？](https://mp.weixin.qq.com/s?__biz=MzIyNDI3MTIxNg==&mid=2651146532&idx=1&sn=6c22c8295fd89d2904e9280e00b6352a&chksm=f3e0673bc497ee2da9b9d4373b6e26811bddb685ed0e636f82a8dc7cb1209075f3180e70ea22&scene=27)
+- [各种标点符号用英文如何表达？](https://mp.weixin.qq.com/s?__biz=MzIyNDI3MTIxNg==&mid=2651146532&idx=1&sn=6c22c8295fd89d2904e9280e00b6352a)
 - [常见符号英文怎么说？](https://www.toutiao.com/video/7211349881984732473/)
 - [计算机符号的英文名,【常见符号英文名称】英文名称](https://blog.csdn.net/weixin_32566515/article/details/119157356)
 - [商场里的 B1，B2层，这个“B”指哪个单词？](https://www.toutiao.com/a6805801853700276743/)
@@ -467,7 +467,7 @@
 - [世界上窖藏时间最长的白酒，中国唯一可以饮用的文物——道光廿五](https://www.toutiao.com/i6720456599237820935/)
 - [印度小吃到底有多野？？？? ](https://www.sohu.com/a/336600678_788223)
 - [《聪明的一休》里面的“桔梗店”是什么梗？感觉好有势力](https://m.sohu.com/a/232049404_100177097)（籼米 [xiān mǐ]，粳米 [jīng mǐ]）
-- [这是中国最“早”的烟火气](https://mp.weixin.qq.com/s?__biz=MzA3MjA4MTQzMw==&mid=2247498518&idx=1&sn=a6e2f59714e6b9238880029b68a37fc1&chksm=9f217260a856fb76727252c6d6b741fbf4a98ed35490275e79e193ac214db499e85ebe11ea78&mpshare=1&scene=23&srcid=0905MiolxZPOQGLNPSSQT3RN&sharer_sharetime=1599285838595&sharer_shareid=35ac76bf9ad4a719bab0994dd606caf6#rd)
+- [新挖的煤为何要水洗才能用？洗煤流程是怎样？背后反映了很多问题](https://www.toutiao.com/article/7218144909969195559/)
 - [超机智！量产的手抓饼皮，只抹一次油，是怎么做到起 N 层酥的？](https://mp.weixin.qq.com/s?__biz=MzI0NjM1NTQxOQ==&mid=2247495375&idx=1&sn=e9ec960d671ddf7a37999077166822b1&chksm=e9422a7bde35a36d498f8d60c96990397e709f82682155dd10ef39a3f8c4ec96cf320dfc3e5c&mpshare=1&scene=23&srcid=0907mSeevXqm9Ns38Xv1Amx6&sharer_sharetime=1599408416895&sharer_shareid=35ac76bf9ad4a719bab0994dd606caf6#rd)
 - [漫画：今天科普一下人类的“便便”都去哪了？](https://www.toutiao.com/a6806438084675109390/)
 - [巨头不愿退出社区团购，期望股市套现退出时，超投必投](https://www.toutiao.com/i6906412338019156494/)
