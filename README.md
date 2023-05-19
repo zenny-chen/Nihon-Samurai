@@ -299,6 +299,7 @@
 - [铳皇无尽的法夫纳](https://www.yhdmp.live/showp/15087.html)
 - [穷神](https://www.yhdmp.live/showp/12130.html)
 - [不正经的魔术讲师与禁忌教典](https://www.yhdmp.live/showp/17104.html)
+- 恋爱暴君
 - [我家的女仆太烦人了！](https://www.yhdmp.live/showp/18317.html)
 - [春原庄的管理人小姐](https://www.yhdmp.live/showp/18257.html)
 - [钢铁新娘](https://www.yhdmp.live/showp/8145.html)
