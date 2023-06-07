@@ -113,6 +113,7 @@
 - [『天穂のサクナヒメ』オリジナルサントラ](https://www.famitsu.com/news/202110/27238747.html)
 - [天穂のサクナヒメ　アレンジアルバム　『実演楽曲集　奏　―かなで―』 - Epic Games Store](https://store.epicgames.com/ja/p/sakuna-of-rice-and-ruin--musical-arrangements)
 - [【天穂のサクナヒメ】大禍大龍（オオマガツオオミズチ）の戦い方や攻略情報](https://dencommu.com/sakunahime/juuki/oomizuti/)
+- [圣零2 CH1 跑酷大师和CH8 我很忙 是怎么完成的](https://tieba.baidu.com/p/7751837910)
 - [【图片】回味圣女之歌--剧透_圣女之歌吧](https://tieba.baidu.com/p/7290855243)
 - [【图片】根据精品区神贴--回味圣女之歌剧透，做出第2次剧透](https://tieba.baidu.com/p/7769268454)
 
