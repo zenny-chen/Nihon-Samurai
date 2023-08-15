@@ -403,6 +403,7 @@
 - [爸妈不在家](https://www.toutiao.com/video/7158614269968417312/)
 - [是来洗衣服了不是游泳的](https://www.toutiao.com/video/7139039935109169697/)
 - [十月初还有谁敢游泳](https://www.toutiao.com/video/7150446453679194636/)
+- [不玩水💦不童年🍃 不湿身👗不夏天🌴 夏日炎炎☀️遇水超甜🍬](https://www.toutiao.com/video/7266643793581965876/)
 - [从小练就的本事，你们猜猜是为了什么](https://www.toutiao.com/video/7148429785494979086/)
 - [准时起床的弟弟突然赖床，姐姐发现不对劲，掀开被子吓坏了](https://www.toutiao.com/video/7108660199015219720/)
 - [半夜不睡真能折腾](https://www.toutiao.com/video/7182231531841618467/)
