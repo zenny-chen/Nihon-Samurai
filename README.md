@@ -450,6 +450,7 @@
 - [【声律启蒙】分段解释之十二侵原文及翻译](http://www.360doc.com/content/18/0805/22/8852259_775955423.shtml)
 - [【声律启蒙】分段解释之一东原文及翻译](http://www.360doc.com/content/18/0805/10/8852259_775814003.shtml)
 - [中文汉字字根——学习传统文化，提升家教智慧](https://app7emcf2e18097.h5.xiaoeknow.com/v2/course/alive/l_6401cf97e4b02685a44cea3b)
+- [如何理解《老子》第四章中的“象帝之先”？](https://www.zhihu.com/question/268593448/answer/2886231254)
 - [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 - [国际单位制词头](https://baike.baidu.com/item/%E5%9B%BD%E9%99%85%E5%8D%95%E4%BD%8D%E5%88%B6%E8%AF%8D%E5%A4%B4/4172502)
 - [國際音標](https://gan.wikipedia.org/wiki/國際音標)
