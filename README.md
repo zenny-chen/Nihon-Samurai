@@ -91,6 +91,14 @@
 
 <br />
 
+## 天外魔境真传东方伊甸园
+
+- [天外魔境真传东方伊甸园](https://www.mamecn.com/jiejirom/430.html)
+- [街机游戏《天外魔境外传》罕见的神奇操作，多少人至今没见过](https://www.toutiao.com/article/6701152077227229700/)
+- [街机《天外魔境真传》被错过二十年的连段，扔掉武器才能发挥实力](https://baijiahao.baidu.com/s?id=1728506455130974848&wfr=spider&for=pc)
+
+<br />
+
 ## 其他游戏攻略
 
 - Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
@@ -117,8 +125,6 @@
 - [圣零2 CH1 跑酷大师和CH8 我很忙 是怎么完成的](https://tieba.baidu.com/p/7751837910)
 - [【图片】回味圣女之歌--剧透_圣女之歌吧](https://tieba.baidu.com/p/7290855243)
 - [【图片】根据精品区神贴--回味圣女之歌剧透，做出第2次剧透](https://tieba.baidu.com/p/7769268454)
-- [街机游戏《天外魔境外传》罕见的神奇操作，多少人至今没见过](https://www.toutiao.com/article/6701152077227229700/)
-- [街机《天外魔境真传》被错过二十年的连段，扔掉武器才能发挥实力](https://baijiahao.baidu.com/s?id=1728506455130974848&wfr=spider&for=pc)
 
 <br />
 
