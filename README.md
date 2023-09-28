@@ -388,6 +388,7 @@
 - [美剧常见英文缩写：gonna、wanna、gotta的区别](https://www.ixigua.com/pseries/6808349628287681028_6801363177108931086/)
 - [讽刺短片《不一样的数学》，这可能是美国社会的真实写照了！](https://mp.weixin.qq.com/s/HrCBVsFjsdK6XkIWbQOrcA)
 - [为什么我们要更专注于学习而不是娱乐？](https://www.ixigua.com/i6829513326385431051/)
+- [非常罕见的乔布斯视频——详细的解释他取得市场的策略，真的牛逼](https://www.toutiao.com/video/7283393046526624292/)
 
 <br />
 
@@ -557,7 +558,6 @@
 - [Linux：NVIDIA是我们接触过的最糟糕的公司，没有之一](https://www.toutiao.com/a6867912316361376263/)
 - [你写过的最蠢的代码是？](https://www.zhihu.com/question/463190146/answer/3153180712)
 - [特朗普荣获医学教育奖！2020年搞笑诺贝尔奖出炉，还有有味道的一系列研究...](https://mp.weixin.qq.com/s?__biz=MzIzNjc1NzUzMw==&mid=2247554501&idx=1&sn=c46afc23039acd77b6978be8989af39e&chksm=e8d0a2b7dfa72ba18d93c4ec9cb35643515ca25d421cf7607382a23c944bc1d7136e438f4e20)
-- [AMD/Intel/Nvidia加速推进Resizable BAR落地 游戏性能提升5-10%](https://www.toutiao.com/i6928553413164663309/)
 - [科普 | 自然界也有源代码：一位程序员逆向工程了辉瑞新冠疫苗](https://www.toutiao.com/i6911169554471354888/)
 
 <br />
