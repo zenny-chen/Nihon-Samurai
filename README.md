@@ -473,6 +473,7 @@
 - [常见符号英文怎么说？](https://www.toutiao.com/video/7211349881984732473/)
 - [计算机符号的英文名,【常见符号英文名称】英文名称](https://blog.csdn.net/weixin_32566515/article/details/119157356)
 - [学科用英语怎么说？](https://zhidao.baidu.com/question/1865136341916663387.html)
+- [打勾打叉用英语怎么说](https://zhidao.baidu.com/question/992175657939957459/answer/4219295828.html)
 - [商场里的 B1，B2层，这个“B”指哪个单词？](https://www.toutiao.com/a6805801853700276743/)
 - [最全“英语介词”用法，彩图高清可打印，再也不用担心孩子不会了](https://www.toutiao.com/a6813894423844225550/)
 - [各类话题“动词短语” 雅思口语，等级英语改错都能用到 下篇](https://www.toutiao.com/a6813908390067044868/)
