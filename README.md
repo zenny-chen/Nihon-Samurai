@@ -446,6 +446,7 @@
 
 - [https://www.flowvpx.com/](https://www.flowvpx.com/)：点击Login，登录后点击“采购”即可续费。
 - Windows下浏览器中按住ctrl再点击超链接则可直接在新标签栏中打开网页；macOS下则是按住command键。
+- [行结束符 \(CR, LF\)](https://www.jianshu.com/p/19af4516f9e8)
 - [快来查一下，有多少人正在蹭你家的网？](https://www.toutiao.com/a6772405957730238988/)
 - [2020最新最全最详细家庭组网大全](https://www.toutiao.com/a6860751769761219083/)
 - [Wi-Fi 6来了。需要现在就更新家里的路由器吗？](https://www.toutiao.com/i6702807269836325384)
