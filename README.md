@@ -100,6 +100,15 @@
 
 <br />
 
+## 帝国时代系列攻略
+
+- [帝国时代1概述，包括罗马复兴和决定版单位篇（一）石器时代和工具时代](https://www.bilibili.com/read/cv18210573/)
+- [帝国时代1概述，包括罗马复兴和决定版单位篇（二）铜器时代](https://www.bilibili.com/read/cv19406642/)
+- [帝国时代1概述，包括罗马复兴和决定版单位篇（三） 铁器时代兵种（1）](https://www.bilibili.com/read/cv19514772/)
+- [帝国时代1概述，包括罗马复兴和决定版单位篇（三） 铁器时代兵种（2）](https://www.bilibili.com/read/cv22917533/)
+
+<br />
+
 ## 其他游戏攻略
 
 - Steam游戏默认安装在：C:\Program Files (x86)\Steam\steamapps\common
