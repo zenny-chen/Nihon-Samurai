@@ -106,6 +106,7 @@
 - [帝国时代1概述，包括罗马复兴和决定版单位篇（二）铜器时代](https://www.bilibili.com/read/cv19406642/)
 - [帝国时代1概述，包括罗马复兴和决定版单位篇（三） 铁器时代兵种（1）](https://www.bilibili.com/read/cv19514772/)
 - [帝国时代1概述，包括罗马复兴和决定版单位篇（三） 铁器时代兵种（2）](https://www.bilibili.com/read/cv22917533/)
+- [帝国时代历代秘籍作弊码全汇总](https://gl.ali213.net/html/2021-10/718413.html)（COINAGE 获得1000黄金；QUARRY 获得1000石头；PEPPERONI PIZZA 获得1000食物；WOODSTOCK 获得1000木材）
 
 <br />
 
