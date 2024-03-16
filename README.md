@@ -1,6 +1,6 @@
 # 一些文艺杂文
 
-<br/>
+<br />
 
 - [日本武士有“纳刀”动作，中国古代刀入鞘为何没有？](https://zhidao.baidu.com/question/1452969784001607500.html)
 - [居合斩作为游戏中的高等级必杀技，真的那么厉害吗？](https://www.toutiao.com/a6787300875258823175/)
@@ -47,18 +47,34 @@
 
 ## 魔法门之英雄无敌系列
 
-1. [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
-1. [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
-1. [英雄无敌5地牢研究：元素锁链](https://www.gamersky.com/handbook/200605/22975.shtml)
+- [《英雄无敌3》升级前后实力提升最夸张的7级兵：巨人...](https://www.toutiao.com/article/7329497710229553700/)
+- [《英雄无敌3》塔楼最昂贵的兵种，但他的实力配得上价格：大法师](https://www.toutiao.com/article/7329489464655970868/)
+- [碾压所有同级兵种！《英雄无敌3》七个种族中最强的7级兵：天使](https://www.toutiao.com/article/7324307482254459426/)
+- [《英雄无敌3》中人族新来的1级兵，却成了整个种族的中流砥柱！](https://www.toutiao.com/article/7345083642441662987/)
+- [《英雄无敌3》输出和耐久兼备，2级兵中最受热捧的远程单位！](https://www.toutiao.com/article/7345080262659080767/)
+- [石化强过美杜莎！《英雄无敌3》优秀到成为4级兵标杆单位的巨蜥](https://www.toutiao.com/article/7339883018620158483/)
+- [《英雄无敌3》最弱鸡的6级兵，但架不住能一周速出：飞龙王](https://www.toutiao.com/w/1792325852088460/)
+- [7级兵前形同弟弟，低级兵前大显神威！](https://www.toutiao.com/article/7342851588744528395/)
+- [英雄无敌3》升级之后直接化身游戏中最强实力派的单位：野牛](https://www.toutiao.com/article/7153829617768628747/)
+- [《英雄无敌3》欺软怕硬的终极九头怪](https://www.toutiao.com/w/1792688350077964/)
+- [《英雄无敌3》最能体现要塞种族特色的三个核心建筑](https://www.toutiao.com/w/1793234925021220/)
+- [身板和破布一样脆弱《英雄无敌3》墓园族最没存在感的兵种：阴魂](https://www.toutiao.com/article/7337288959511167488/)
+- [性价比超高！《英雄无敌3》据点族最引以为傲的飞行兵种：雷鸟](https://www.toutiao.com/article/7339875048444576292/)
+- [比法师的价格还夸张！《英雄无敌3》最坑玩家资源的兵种：毒眼](https://www.toutiao.com/article/7341758822581387787/)
+- [《英雄无敌3》元素城中战力一言难尽的双格远程兵：冰元素！](https://www.toutiao.com/article/7342848936136294964/)
+- [英雄无敌三之bug大集锦，最后一种让人口水直流](https://www.toutiao.com/article/7153829617768628747/)
+- [《魔法门系列之英雄无敌5》新人上手指南](https://gl.ali213.net/html/2007/7098.html)
+- [魔法门之英雄无敌5攻略集](https://gl.ali213.net/z/4670/)
+- [英雄无敌5地牢研究：元素锁链](https://www.gamersky.com/handbook/200605/22975.shtml)
 
-<br/>
+<br />
 
 ## 生化危机系列
 
 1. [《生化危机0hd重制版》白金攻略 新手向白金攻略及要点心得](https://www.gamersky.com/handbook/201603/728649.shtml)
 1. [生化危机1主线流程图文攻略 生化危机1全流程通关攻略](http://www.dianwannan.com/gonglue/5813/)
 
-<br/>
+<br />
 
 ## 閃乱カグラ
 
@@ -66,7 +82,7 @@
 1. [閃乱カグラ Burst Re Newal 自由忍務 3-1～6(YouTube)](https://www.youtube.com/watch?v=rqrjoMdAgSI)
 1. [閃乱カグラバーストリニューアル攻略 自由任務と出現妖](https://速報最新ニュース.com/burst_rel/47896/)
 
-<br/>
+<br />
 
 ## 战舰世界（World of Warships）
 
