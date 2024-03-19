@@ -47,6 +47,8 @@
 
 ## 魔法门之英雄无敌系列
 
+- [魔法门英雄无敌2的战役攻略](https://www.dnatupu.com/ask/884706.html)
+- [罗兰德·艾伦法斯特](https://www.baike.com/wikiid/24251158734810875)
 - [《英雄无敌3》升级前后实力提升最夸张的7级兵：巨人...](https://www.toutiao.com/article/7329497710229553700/)
 - [《英雄无敌3》塔楼最昂贵的兵种，但他的实力配得上价格：大法师](https://www.toutiao.com/article/7329489464655970868/)
 - [碾压所有同级兵种！《英雄无敌3》七个种族中最强的7级兵：天使](https://www.toutiao.com/article/7324307482254459426/)
