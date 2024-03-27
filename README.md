@@ -49,6 +49,7 @@
 
 - [魔法门英雄无敌2的战役攻略](https://www.dnatupu.com/ask/884706.html)
 - [英雄无敌2秘籍！！](https://www.baiwen9.com/life/143702.html)
+- [《英雄无敌2》秘籍大全](https://m.iask.sina.com.cn/b/2FamokJuWHw.html)
 - [罗兰德·艾伦法斯特](https://www.baike.com/wikiid/24251158734810875)
 - [《英雄无敌3》升级前后实力提升最夸张的7级兵：巨人...](https://www.toutiao.com/article/7329497710229553700/)
 - [《英雄无敌3》塔楼最昂贵的兵种，但他的实力配得上价格：大法师](https://www.toutiao.com/article/7329489464655970868/)
