@@ -45,6 +45,9 @@
 - [春日野さくら](https://ja.m.wikipedia.org/wiki/%E6%98%A5%E6%97%A5%E9%87%8E%E3%81%95%E3%81%8F%E3%82%89)
 - [まこと (ストリートファイター)](https://ja.m.wikipedia.org/wiki/%E3%81%BE%E3%81%93%E3%81%A8_(%E3%82%B9%E3%83%88%E3%83%AA%E3%83%BC%E3%83%88%E3%83%95%E3%82%A1%E3%82%A4%E3%82%BF%E3%83%BC))
 - [いぶき (ストリートファイター)](https://ja.m.wikipedia.org/wiki/%E3%81%84%E3%81%B6%E3%81%8D_(%E3%82%B9%E3%83%88%E3%83%AA%E3%83%BC%E3%83%88%E3%83%95%E3%82%A1%E3%82%A4%E3%82%BF%E3%83%BC))
+- [ルシア (ファイナルファイト)](https://ja.m.wikipedia.org/wiki/%E3%83%AB%E3%82%B7%E3%82%A2_(%E3%83%95%E3%82%A1%E3%82%A4%E3%83%8A%E3%83%AB%E3%83%95%E3%82%A1%E3%82%A4%E3%83%88))
+- [エドモンド本田](https://ja.m.wikipedia.org/wiki/%E3%82%A8%E3%83%89%E3%83%A2%E3%83%B3%E3%83%89%E6%9C%AC%E7%94%B0)
+- [ザンギエフ](https://ja.m.wikipedia.org/wiki/%E3%82%B6%E3%83%B3%E3%82%AE%E3%82%A8%E3%83%95)
 
 <br />
 
