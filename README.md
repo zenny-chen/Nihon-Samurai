@@ -509,6 +509,7 @@
 - [彳亍](https://baike.baidu.com/item/彳亍/51329)
 - [如何理解《老子》第四章中的“象帝之先”？](https://www.zhihu.com/question/268593448/answer/2886231254)
 - [打尖](https://baike.baidu.com/item/%E6%89%93%E5%B0%96/565899)
+- [卡拉米的意思](https://zhidao.baidu.com/question/2063252914403791347/answer/4445285521.html)
 - [English](http://chenweixiang.github.io/2020/05/29/english.html)
 - [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 - [国际单位制词头](https://baike.baidu.com/item/%E5%9B%BD%E9%99%85%E5%8D%95%E4%BD%8D%E5%88%B6%E8%AF%8D%E5%A4%B4/4172502)
