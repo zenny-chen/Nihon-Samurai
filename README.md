@@ -503,6 +503,7 @@
 - [你不了解的世嘉MD32X：主机硬件艰难升级路](https://www.toutiao.com/video/7375107136738558499/)
 - [什么是打击感？从春日野樱的重拳动作说起](https://www.toutiao.com/article/7124495631917679119/)
 - [动画为何如此吸引我们？——聊聊动画中那些稀奇古怪的文字](https://zhuanlan.zhihu.com/p/130497406?utm_id=0)
+- [钢琴五线谱的各种记号大全，亲们速度收藏哈！](https://www.sohu.com/a/313151956_598635)
 - [【声律启蒙】分段解释之十二侵原文及翻译](http://www.360doc.com/content/18/0805/22/8852259_775955423.shtml)
 - [【声律启蒙】分段解释之一东原文及翻译](http://www.360doc.com/content/18/0805/10/8852259_775814003.shtml)
 - [中文汉字字根——学习传统文化，提升家教智慧](https://app7emcf2e18097.h5.xiaoeknow.com/v2/course/alive/l_6401cf97e4b02685a44cea3b)
