@@ -630,6 +630,7 @@
 
 - [Linux：NVIDIA是我们接触过的最糟糕的公司，没有之一](https://www.toutiao.com/a6867912316361376263/)
 - [你写过的最蠢的代码是？](https://www.zhihu.com/question/463190146/answer/3153180712)
+- [被哈佛扫地出门，他发明了让无数程序员痛不欲生的编程语言](https://www.toutiao.com/article/7408478770048336411/)
 - [特朗普荣获医学教育奖！2020年搞笑诺贝尔奖出炉，还有有味道的一系列研究...](https://mp.weixin.qq.com/s?__biz=MzIzNjc1NzUzMw==&mid=2247554501&idx=1&sn=c46afc23039acd77b6978be8989af39e&chksm=e8d0a2b7dfa72ba18d93c4ec9cb35643515ca25d421cf7607382a23c944bc1d7136e438f4e20)
 - [科普 | 自然界也有源代码：一位程序员逆向工程了辉瑞新冠疫苗](https://www.toutiao.com/i6911169554471354888/)
 
