@@ -670,3 +670,9 @@
 - 13－11
 - 14－09
 
+<br />
+
+## 《The Hobbit》中的名言
+
+- And I hope you never have to. But if you do, remember this: True courage is about knowing not when to take a life, but when to spare one.
+
