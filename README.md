@@ -57,6 +57,8 @@
 - [Xianghua Character](https://8wayrun.com/wiki/xianghua/#-art-soulcalibur-vi)
 - [チャイシャンファ/背景ストーリー](https://ja.namu.wiki/w/%EC%B0%A8%EC%9D%B4%20%EC%83%B9%ED%99%94/%EB%B0%B0%EA%B2%BD%20%EC%8A%A4%ED%86%A0%EB%A6%AC)
 - [CHAI XIANGHUA：DATA](https://geppopotamus.info/game/sc6/xianghua/data.htm)
+- [Soul Calibur Stages](https://soulcalibur.fandom.com/wiki/Category:Stages)
+- [Stage Silver Wolves' Haven](https://soulcalibur.fandom.com/wiki/Silver_Wolves%27_Haven)
 
 <br />
 
