@@ -418,6 +418,9 @@
 - [智能大反攻](https://www.qybfb.com/donghuapian/zhinengdafangong/2-1.html)
 - [擦鞋童](https://www.ixigua.com/cinema/album/7OK9bjdcH8x_7WFkMW9mBAr/)
 - [阿Q正传](https://www.ixigua.com/cinema/album/7NXazhIpiO8_7NXb1R13K4X/)
+- [(法国喜剧)【都市外来客】1](https://m.baidu.com/video/page?pd=video_page&nid=13294301065488112651&sign=3915388752431495977&word=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&oword=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&atn=index&frsrcid=48304&ext=%7B%22jsy%22%3A1%7D&top=%7B%22sfhs%22%3A1%2C%22_hold%22%3A2%7D&fr0=A&fr1=A&ms=1&lid=8598674206740541196&referlid=8598674206740541196&frorder=2&_t=1731520171260)
+- [(法国喜剧)【都市外来客】2](https://m.baidu.com/video/page?pd=video_page&nid=9548121810645899957&sign=11391687879628088441&word=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&oword=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&atn=index&frsrcid=48304&ext=%7B%22jsy%22%3A1%7D&top=%7B%22sfhs%22%3A1%2C%22_hold%22%3A2%7D&fr0=A&fr1=A&ms=1&lid=8598674206740541196&referlid=8598674206740541196&frorder=1&_t=1731520308734)
+- [(法国喜剧)【都市外来客】3](https://m.baidu.com/video/page?pd=video_page&nid=14501478409857017792&sign=14476374054944914417&word=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&oword=%E9%83%BD%E5%B8%82%E5%A4%96%E6%9D%A5%E5%AE%A2&atn=index&frsrcid=48304&ext=%7B%22jsy%22%3A1%7D&top=%7B%22sfhs%22%3A1%2C%22_hold%22%3A2%7D&fr0=A&fr1=A&ms=1&lid=8598674206740541196&referlid=8598674206740541196&frorder=3&_t=1731520344158)
 
 <br />
 
