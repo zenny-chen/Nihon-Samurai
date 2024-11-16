@@ -562,7 +562,8 @@
 - [印度小吃到底有多野？？？? ](https://www.sohu.com/a/336600678_788223)
 - [《聪明的一休》里面的“桔梗店”是什么梗？感觉好有势力](https://m.sohu.com/a/232049404_100177097)（籼米 [xiān mǐ]，粳米 [jīng mǐ]）
 - [新挖的煤为何要水洗才能用？洗煤流程是怎样？背后反映了很多问题](https://www.toutiao.com/article/7218144909969195559/)
-- [超机智！量产的手抓饼皮，只抹一次油，是怎么做到起 N 层酥的？](https://mp.weixin.qq.com/s?__biz=MzI0NjM1NTQxOQ==&mid=2247495375&idx=1&sn=e9ec960d671ddf7a37999077166822b1&chksm=e9422a7bde35a36d498f8d60c96990397e709f82682155dd10ef39a3f8c4ec96cf320dfc3e5c&mpshare=1&scene=23&srcid=0907mSeevXqm9Ns38Xv1Amx6&sharer_sharetime=1599408416895&sharer_shareid=35ac76bf9ad4a719bab0994dd606caf6#rd)
+- [超机智！量产的手抓饼皮，只抹一次油，是怎么做到起 N 层酥的？](https://mp.weixin.qq.com/s?__biz=MzI0NjM1NTQxOQ==&mid=2247495375&idx=1&sn=e9ec960d671ddf7a37999077166822b1)
+- [大涨知识：原来各国国名是这样来的](https://www.sohu.com/a/121468667_131831)
 - [漫画：今天科普一下人类的“便便”都去哪了？](https://www.toutiao.com/a6806438084675109390/)
 - [为什么飞机从不飞越太平洋？动画演示全过程，多年的疑惑解开了](https://www.toutiao.com/video/7433631480007361075/)
 - [巨头不愿退出社区团购，期望股市套现退出时，超投必投](https://www.toutiao.com/i6906412338019156494/)
