@@ -56,6 +56,7 @@
 
 - [Xianghua Character](https://8wayrun.com/wiki/xianghua/#-art-soulcalibur-vi)
 - [チャイシャンファ/背景ストーリー](https://ja.namu.wiki/w/%EC%B0%A8%EC%9D%B4%20%EC%83%B9%ED%99%94/%EB%B0%B0%EA%B2%BD%20%EC%8A%A4%ED%86%A0%EB%A6%AC)
+- [柴香华](https://baike.baidu.com/item/%E6%9F%B4%E9%A6%99%E5%8D%8E/748534?fr=ge_ala)
 - [Chai Xiangfei](https://soulcalibur.fandom.com/wiki/Chai_Xiangfei)
 - [CHAI XIANGHUA：DATA](https://geppopotamus.info/game/sc6/xianghua/data.htm)
 - [Soul Calibur Stages](https://soulcalibur.fandom.com/wiki/Category:Stages)
