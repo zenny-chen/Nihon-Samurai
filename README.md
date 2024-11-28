@@ -207,6 +207,7 @@
 - [天降之物第一季](http://m.imomoe.in/view/4975.html)
 - [天降之物第二季](http://m.imomoe.in/view/4718.html)
 - [七大罪](http://m.milimili.tv/anime/411/)
+- [至高指令](http://www.wxwtl.com/play-zhigaozhiling-1-1.html)
 - [维亚童话故事第一季](http://www.nblxzl.com/dmplay/1666-1-1.html)
 - [回复术士的重启人生](https://www.xabxzdz.com/edu278749-2-1.html)
 - [无职转生 ～在异世界认真地活下去～](https://www.yhdmp.live/showp/20094.html)
