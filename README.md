@@ -149,6 +149,16 @@
 - [帝国时代1决定版【全战役最高难度完整版】全篇完结P61](https://www.bilibili.com/video/BV1WB4y1P7nT/)
 - [帝国时代2决定版战役金牌通关攻略（2）：圣女贞德](https://zhuanlan.zhihu.com/p/621595470)
 - [帝国时代历代秘籍作弊码全汇总](https://gl.ali213.net/html/2021-10/718413.html)（COINAGE 获得1000黄金；QUARRY 获得1000石头；PEPPERONI PIZZA 获得1000食物；WOODSTOCK 获得1000木材）
+- [《帝国时代终极版》图文攻略 全兵种建筑介绍及玩法图文攻略](https://www.gamersky.com/handbook/201802/1017672.shtml)
+
+<br />
+
+## 天穂のサクナヒメ
+
+- [『天穂のサクナヒメ』オリジナルサントラ](https://www.famitsu.com/news/202110/27238747.html)
+- [天穂のサクナヒメ　アレンジアルバム　『実演楽曲集　奏　―かなで―』 - Epic Games Store](https://store.epicgames.com/ja/p/sakuna-of-rice-and-ruin--musical-arrangements)
+- [【天穂のサクナヒメ】大禍大龍（オオマガツオオミズチ）の戦い方や攻略情報](https://dencommu.com/sakunahime/juuki/oomizuti/)
+- [天穗之咲稻姬白金攻略 全成就达成方法](https://www.doyo.cn/article/411530/?p=3)
 
 <br />
 
@@ -158,7 +168,6 @@
 - Steam主界面中上部菜单栏最左侧的**Steam**项中选择“设置”，里面可以设置下载文件夹。
 - [《伊苏6》图文攻略 全流程收集图文攻略](https://www.gamersky.com/handbook/201504/568815_3.shtml)
 - [《饿狼传说》系列角色背景资料](https://www.gamersky.com/handbook/201608/801902_39.shtml)
-- [《帝国时代终极版》图文攻略 全兵种建筑介绍及玩法图文攻略](https://www.gamersky.com/handbook/201802/1017672.shtml)
 - [Campanella](https://legendofheroes.fandom.com/wiki/Campanella)
 - [洛克人8重要收集要素，40颗螺丝全收集攻略](http://pc.tgbus.com/danji_207/91633/)
 - [《洛克人X遗产合集》图文攻略](https://www.gamersky.com/handbook/201807/1077061.shtml)
@@ -172,9 +181,6 @@
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
 - [FC冒险岛全流程，开局一个肚子，活着全靠吃](https://www.toutiao.com/video/7080496326433374757/)
 - [《牧场物语 橄榄镇与希望的大地》加工机大全](https://www.tgbus.com/news/150322)
-- [『天穂のサクナヒメ』オリジナルサントラ](https://www.famitsu.com/news/202110/27238747.html)
-- [天穂のサクナヒメ　アレンジアルバム　『実演楽曲集　奏　―かなで―』 - Epic Games Store](https://store.epicgames.com/ja/p/sakuna-of-rice-and-ruin--musical-arrangements)
-- [【天穂のサクナヒメ】大禍大龍（オオマガツオオミズチ）の戦い方や攻略情報](https://dencommu.com/sakunahime/juuki/oomizuti/)
 - [圣零2 CH1 跑酷大师和CH8 我很忙 是怎么完成的](https://tieba.baidu.com/p/7751837910)
 - [【图片】回味圣女之歌--剧透_圣女之歌吧](https://tieba.baidu.com/p/7290855243)
 - [【图片】根据精品区神贴--回味圣女之歌剧透，做出第2次剧透](https://tieba.baidu.com/p/7769268454)
