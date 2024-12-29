@@ -321,6 +321,7 @@
 - [灰色幻影扳机](https://www.yhdmp.live/showp/18224.html)
 - [妖精的旋律](http://www.imomoe.in/view/2708.html)
 - [彻夜之歌](https://www.yhdmp.live/showp/22173.html)
+- [噬血狂袭第一季](https://idamidm2.com/player/20514-1-1.html)
 - [精灵使的剑舞](https://www.yhdmp.live/showp/14097.html)
 - [为了女儿，我说不定连魔王都能干掉](https://www.yhdmp.live/showp/19143.html)
 - [不道德公会](https://www.yhdmp.live/showp/22304.html)
