@@ -380,6 +380,7 @@
 - [SHINE POST](https://www.yhdmp.live/showp/22156.html)
 - [献身给魔王伊伏洛基亚吧](https://www.yhdmp.live/showp/21433.html)
 - [噬血狂袭第一季](http://www.yundongguolu.com/dongman/4831.html)
+- [在地下城寻求邂逅是否搞错了什么第一季](https://www.fvvfu.com/imomoe/28295-2-1.html#nosort)
 - [日常系的异能战斗](https://www.yhdmp.live/showp/14158.html)
 - [惊爆游戏](https://www.yhdmp.live/showp/12141.html)
 - [悠久持有者！～魔法老师! 2～](https://www.yhdmp.live/showp/17160.html)
