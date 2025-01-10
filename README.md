@@ -198,6 +198,7 @@
 - [《洛克人X遗产合集》图文攻略](https://www.gamersky.com/handbook/201807/1077061.shtml)
 - LAMUNATION-international-18+ Patch: 
 ![LAMUNATION-How-to-play](https://github.com/zenny-chen/Nihon-Samurai/blob/master/LAMUNATION-How-to-play.png)
+- [遗迹探索者（Ruin Seeker）去马赛克补丁](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%81%97%e8%bf%b9%e6%8e%a2%e7%b4%a2%e8%80%85/)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
