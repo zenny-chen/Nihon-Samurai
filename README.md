@@ -201,6 +201,7 @@
 - [遗迹探索者（Ruin Seeker）去马赛克补丁](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%81%97%e8%bf%b9%e6%8e%a2%e7%b4%a2%e8%80%85/)
 - [公主大人才不会认输呢](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%85%ac%e4%b8%bb%e5%a4%a7%e4%ba%ba%e6%89%8d%e4%b8%8d%e4%bc%9a%e8%ae%a4%e8%be%93%e5%91%a2/)
 - [赤环的少女：奴隶斗技场](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e8%b5%a4%e7%8e%af%e7%9a%84%e5%b0%91%e5%a5%b3%ef%bc%9a%e5%a5%b4%e9%9a%b6%e6%96%97%e6%8a%80%e5%9c%ba/)
+- [赤环的少女：奴隶斗技场 -- 赤首斗技场攻略](https://steamcommunity.com/sharedfiles/filedetails/?id=2571260856)
 - [苏尔露伊 -after mini-](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e8%8b%8f%e5%b0%94%e9%9c%b2%e4%bc%8a-after-mini/)
 - [女忍者牡丹](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%a5%b3%e5%bf%8d%e8%80%85%e7%89%a1%e4%b8%b9/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
