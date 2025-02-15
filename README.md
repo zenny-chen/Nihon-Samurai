@@ -205,6 +205,7 @@
 - [苏尔露伊 -after mini-](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e8%8b%8f%e5%b0%94%e9%9c%b2%e4%bc%8a-after-mini/)
 - [女忍者牡丹](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%a5%b3%e5%bf%8d%e8%80%85%e7%89%a1%e4%b8%b9/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
+- [圣奴隶学园2](https://www.yinghuadongman.one/index.php/vod/play/id/6164/sid/1/nid/1.html)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
