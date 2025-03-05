@@ -222,6 +222,8 @@
 - [【图片】回味圣女之歌--剧透_圣女之歌吧](https://tieba.baidu.com/p/7290855243)
 - [【图片】根据精品区神贴--回味圣女之歌剧透，做出第2次剧透](https://tieba.baidu.com/p/7769268454)
 - [恶灵附身（The Evil Within）全剧情流程图文攻略](https://m.jb51.net/gonglue/237589_2.html)
+- [出发吧麦芬：终末战追忆全员通关攻略](https://mbd.baidu.com/newspage/data/dtlandingsuper?nid=dt_5057774881942616556&sourceFrom=search_a)
+- [终于牢完了 整理个忆战回环绝7攻略](https://www.taptap.cn/moment/621122144167790594)
 
 <br />
 
