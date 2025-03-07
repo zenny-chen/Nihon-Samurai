@@ -224,6 +224,7 @@
 - [恶灵附身（The Evil Within）全剧情流程图文攻略](https://m.jb51.net/gonglue/237589_2.html)
 - [出发吧麦芬：终末战追忆全员通关攻略](https://mbd.baidu.com/newspage/data/dtlandingsuper?nid=dt_5057774881942616556&sourceFrom=search_a)
 - [终于牢完了 整理个忆战回环绝7攻略](https://www.taptap.cn/moment/621122144167790594)
+- [《出发吧麦芬》恶龙大通缉打法分享](https://www.gamersky.com/handbook/202407/1784306.shtml)
 
 <br />
 
