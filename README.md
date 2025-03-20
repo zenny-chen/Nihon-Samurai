@@ -226,6 +226,7 @@
 - [终于牢完了 整理个忆战回环绝7攻略](https://www.taptap.cn/moment/621122144167790594)
 - [《出发吧麦芬》恶龙大通缉打法分享](https://www.gamersky.com/handbook/202407/1784306.shtml)
 - [（2.15更新）四转游侠攻略](https://www.taptap.cn/moment/623067428603038417)
+- [稚星道途构筑详解\<施工中\>](https://www.taptap.cn/moment/651500270433338279)
 
 <br />
 
