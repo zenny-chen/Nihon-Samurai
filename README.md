@@ -261,6 +261,7 @@
 - [异种族风俗娘评鉴指南](http://www.hnbz888.com/play/28_51112_1_1_1.html)
 - [要开动咯！精液](https://daquan-tv.cc/xm/94867-1-1/)
 - [要开动咯！精液 SP](https://daquan-tv.cc/xm/94866-1-1/)
+- [霸凌 ～复仇催眠～](https://www.yinghua12.com/index.php/vod/detail/id/18616.html)
 - [隐性傲娇](https://daquan-tv.cc/xm/94872/)
 - [已经想要夹住到无法自拔了](https://daquan-tv.cc/xm/94868-1-1/)
 - [已经想要夹住到无法自拔了 SP](https://daquan-tv.cc/xm/94869-1-1/)
