@@ -208,6 +208,8 @@
 - [地下城军团-献予魔王的少女们-](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%9c%b0%e4%b8%8b%e5%9f%8e%e5%86%9b%e5%9b%a2-%e7%8c%ae%e4%ba%88%e9%ad%94%e7%8e%8b%e7%9a%84%e5%b0%91%e5%a5%b3%e4%bb%ac/)
 - [祈愿诗篇](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e7%a5%88%e6%84%bf%e8%af%97%e7%af%87/)
 - [不知何故独来独往的玛蒂尔达小姐](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e4%b8%8d%e7%9f%a5%e4%bd%95%e6%95%85%e7%8b%ac%e6%9d%a5%e7%8b%ac%e5%be%80%e7%9a%84%e7%8e%9b%e8%92%82%e5%b0%94%e8%be%be%e5%b0%8f%e5%a7%90/)
+- [闪光圣姬马尾天星](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%97%aa%e5%85%89%e5%9c%a3%e5%a7%ac%e9%a9%ac%e5%b0%be%e5%a4%a9%e6%98%9f/)
+- [魔斗姬莉斯缇亚](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e6%96%97%e5%a7%ac%e8%8e%89%e6%96%af%e7%bc%87%e4%ba%9a/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
