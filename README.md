@@ -197,6 +197,7 @@
 - [出发吧麦芬游侠急速属性权重测试和分析（急速无阈值）](https://www.7723.cn/strategy/338651.html)
 - [（2.15更新）四转游侠攻略](https://www.taptap.cn/moment/623067428603038417)
 - [稚星道途构筑详解\<施工中\>](https://www.taptap.cn/moment/651500270433338279)
+- [二转法师一锤定音流详解](https://www.taptap.cn/moment/552178404535831154)
 - [7转法师/学者-猩红接引者 关于自动和手动流派的研究+骨鸦星壳轴](https://www.taptap.cn/moment/674772429683296892)
 
 <br />
