@@ -675,6 +675,7 @@
 - [史上最全的《异形》电影宇宙时间线整理（长文）](https://www.toutiao.com/a6867298261145911821/)
 - [在基因的眼里，万物皆可ChatGPT](https://www.toutiao.com/article/7232812822156149283/)
 - [病毒把人类搞死了，自己也死了，它的目的是什么？病毒与人类进化](https://www.toutiao.com/a6789549660819161608/) [病毒究竟有多厉害？BBC拍出了这部9.4分的科幻大片](https://www.toutiao.com/a6798899207408189966/)
+- [美国将8只白鼠放进“乐园”，繁衍1588天后，看到了人类未来？](https://www.sohu.com/a/578439312_121303829)
 - [鱼鳃呼吸的原理：鱼类只能吸取水里氧气，并且多数只能用鳃来呼吸](https://www.toutiao.com/article/7171484828242641444/)
 - [胆囊壁毛糙](https://baike.baidu.com/item/胆囊壁毛糙/4925446)
 - [前列腺钙化](https://baike.baidu.com/item/前列腺钙化/9364154?fr=aladdin)(https://www.toutiao.com/i6723044015240905224)
