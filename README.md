@@ -230,6 +230,7 @@
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [魔法少女木叶](https://otaku-plan.com/konoha_cn/)
 - [战令姬蕾西娅与失落的要塞](https://otaku-plan.com/warriormaiden_cn/)
+- [《痴情哥哥与病弱妹妹的乡间生活》国际版场景剧情补丁](https://appendingpulse.jp/dl/dok7cefc0mv7?lang=cn)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
