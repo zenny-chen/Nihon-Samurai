@@ -228,6 +228,7 @@
 - [魔斗姬莉斯缇亚](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e6%96%97%e5%a7%ac%e8%8e%89%e6%96%af%e7%bc%87%e4%ba%9a/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
+- [魔法少女木叶](https://otaku-plan.com/konoha_cn/)
 - [战令姬蕾西娅与失落的要塞](https://otaku-plan.com/warriormaiden_cn/)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
