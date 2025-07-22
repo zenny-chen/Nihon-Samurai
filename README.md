@@ -201,6 +201,7 @@
 - [麦芬：星途](https://www.taptap.cn/moment/696716404694452756)
 - [二转法师一锤定音流详解](https://www.taptap.cn/moment/552178404535831154)
 - [7转法师/学者-猩红接引者 关于自动和手动流派的研究+骨鸦星壳轴](https://www.taptap.cn/moment/674772429683296892)
+- [7转134级终末-荒海魂归异乡路打法](https://www.taptap.cn/moment/694593067507779245)
 
 <br />
 
