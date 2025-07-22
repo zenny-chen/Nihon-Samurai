@@ -193,13 +193,14 @@
 - [出发吧麦芬：终末战追忆全员通关攻略](https://mbd.baidu.com/newspage/data/dtlandingsuper?nid=dt_5057774881942616556&sourceFrom=search_a)
 - [终于牢完了 整理个忆战回环绝7攻略](https://www.taptap.cn/moment/621122144167790594)
 - [《出发吧麦芬》恶龙大通缉打法分享](https://www.gamersky.com/handbook/202407/1784306.shtml)
-- [关于星壳](https://www.taptap.cn/moment/652112213502330899)
 - [出发吧麦芬游侠急速属性权重测试和分析（急速无阈值）](https://www.7723.cn/strategy/338651.html)
+- [麦芬：坐骑装备](https://www.taptap.cn/moment/696719089871095985)
 - [（2.15更新）四转游侠攻略](https://www.taptap.cn/moment/623067428603038417)
 - [稚星道途构筑详解\<施工中\>](https://www.taptap.cn/moment/651500270433338279)
+- [关于星壳](https://www.taptap.cn/moment/652112213502330899)
+- [麦芬：星途](https://www.taptap.cn/moment/696716404694452756)
 - [二转法师一锤定音流详解](https://www.taptap.cn/moment/552178404535831154)
 - [7转法师/学者-猩红接引者 关于自动和手动流派的研究+骨鸦星壳轴](https://www.taptap.cn/moment/674772429683296892)
-- [7转134级终末-荒海魂归异乡路打法](https://www.taptap.cn/moment/694593067507779245)
 
 <br />
 
