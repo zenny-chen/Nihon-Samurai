@@ -234,6 +234,7 @@
 - [战令姬蕾西娅与失落的要塞](https://otaku-plan.com/warriormaiden_cn/)
 - [《痴情哥哥与病弱妹妹的乡间生活》国际版场景剧情补丁](https://appendingpulse.jp/dl/dok7cefc0mv7?lang=cn)
 - [Shiravune 游戏补丁](https://xiaoxiong0.wordpress.com/)（由于补丁语言版本和下载页面的语言相同，为避免您下载不适用的游戏补丁，请您通过页面右上方的"Language"按钮选择您所惯用的语言后，再选择您所需要的游戏补丁。）
+- [苍之彼方的四重奏](https://patches.nekonyansoft.com/)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
