@@ -642,6 +642,7 @@
 - [儿童英语歌词](https://wenku.baidu.com/view/c5450f4cfe4733687e21aa5b)
 - [国际单位制词头](https://baike.baidu.com/item/%E5%9B%BD%E9%99%85%E5%8D%95%E4%BD%8D%E5%88%B6%E8%AF%8D%E5%A4%B4/4172502)
 - [國際音標](https://gan.wikipedia.org/wiki/國際音標)
+- [ε 这个音标，是和 e 完全一样吗？](https://www.zhihu.com/question/452320823)
 - [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
 - [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 - [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
