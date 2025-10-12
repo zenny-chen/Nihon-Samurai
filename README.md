@@ -299,6 +299,7 @@
 - [春夏事件簿：春太与千夏的青春](https://www.yinghuadongman.one/index.php/vod/play/id/17540/sid/1/nid/1.html)
 - [刹那之花](https://dm84.vip/v/5262.html)
 - [双斩少女](https://www.odcoc.net/yinghua/8051-4-1.html)
+- [最后的大魔王](https://www.yinhuadm.vip/p/11428-2-1.html)
 - [不正经的魔术讲师与禁忌教典](https://www.yhdmp.live/vp/17104-1-0.html)
 - [妖精的旋律](https://www.yhdmp.live/vp/4083-2-0.html)
 - [狼与香辛料](https://www.yhdmp.live/showp/8086.html)
