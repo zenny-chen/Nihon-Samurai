@@ -200,6 +200,7 @@
 - [关于星壳](https://www.taptap.cn/moment/652112213502330899)
 - [麦芬：星途](https://www.taptap.cn/moment/696716404694452756)
 - [二转法师一锤定音流详解](https://www.taptap.cn/moment/552178404535831154)
+- [四转赋形魔导 学者全面攻略](https://www.taptap.cn/moment/592313287593430516)
 - [7转法师/学者-猩红接引者 关于自动和手动流派的研究+骨鸦星壳轴](https://www.taptap.cn/moment/674772429683296892)
 - [7转134级终末-荒海魂归异乡路打法](https://www.taptap.cn/moment/694593067507779245)
 - [八转剑，8/8更新](https://www.taptap.cn/moment/702310120180154656)
