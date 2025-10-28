@@ -204,6 +204,10 @@
 - [7转法师/学者-猩红接引者 关于自动和手动流派的研究+骨鸦星壳轴](https://www.taptap.cn/moment/674772429683296892)
 - [7转134级终末-荒海魂归异乡路打法](https://www.taptap.cn/moment/694593067507779245)
 - [八转剑，8/8更新](https://www.taptap.cn/moment/702310120180154656)
+- [麦芬：九转服事-四维干涉者](https://www.taptap.cn/moment/727104948277347763)
+- [九转刺客前瞻](https://www.taptap.cn/moment/694549973206830409)
+- [九转弓技能、天赋、风格](https://www.taptap.cn/moment/704078886769524776)
+- [麦芬：九转服事•四维干涉者（预览版）](https://www.taptap.cn/moment/703270381447807701)
 
 <br />
 
