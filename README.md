@@ -302,6 +302,7 @@
 - [回复术士的重启人生](https://www.xabxzdz.com/edu278749-2-1.html)
 - [无职转生 ～在异世界认真地活下去～](https://www.yhdmp.live/showp/20094.html)
 - [无职转生 ～在异世界认真地活下去～ Part.2](https://www.yhdmp.live/showp/21409.html)
+- [异世界药局](https://www.nbwangming.com/data/ysjyj/68308fa473da7.html)
 - [简介出包王女 Darkness](https://www.szalna.com/play/cbwnd2012/1-1.html)
 - [暴食狂战士](https://www.qdm66.com/dongman/8375.html)
 - [春夏事件簿：春太与千夏的青春](https://www.yinghuadongman.one/index.php/vod/play/id/17540/sid/1/nid/1.html)
