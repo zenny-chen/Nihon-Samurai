@@ -684,6 +684,7 @@
 - [世界上窖藏时间最长的白酒，中国唯一可以饮用的文物——道光廿五](https://www.toutiao.com/i6720456599237820935/)
 - [黄油是如何做出来的？探秘黄油工厂，看完终于知道为啥卖那么贵了](https://www.toutiao.com/video/7382916977389470249/)
 - [印度小吃到底有多野？？？? ](https://www.sohu.com/a/336600678_788223)
+- [蒸熟的螃蟹身上，像鸡蛋白一样的固体是什么？能吃吗？](https://mp.weixin.qq.com/s?__biz=MzAxMDA4MzExNg==&mid=2654554834&idx=1&sn=0ded7c75d0575512f7e1d0a055b80776)
 - [《聪明的一休》里面的“桔梗店”是什么梗？感觉好有势力](https://m.sohu.com/a/232049404_100177097)（籼米 [xiān mǐ]，粳米 [jīng mǐ]）
 - [新挖的煤为何要水洗才能用？洗煤流程是怎样？背后反映了很多问题](https://www.toutiao.com/article/7218144909969195559/)
 - [超机智！量产的手抓饼皮，只抹一次油，是怎么做到起 N 层酥的？](https://mp.weixin.qq.com/s?__biz=MzI0NjM1NTQxOQ==&mid=2247495375&idx=1&sn=e9ec960d671ddf7a37999077166822b1)
