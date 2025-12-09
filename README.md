@@ -236,6 +236,7 @@
 - [魔斗姬莉斯缇亚](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e6%96%97%e5%a7%ac%e8%8e%89%e6%96%af%e7%bc%87%e4%ba%9a/)
 - [黄金之境-埃尔德兰特-](https://kagurafan.com/2024/09/13/%e9%bb%84%e9%87%91%e4%b9%8b%e5%a2%83-%e5%9f%83%e5%b0%94%e5%be%b7%e5%85%b0%e7%89%b9/)
 - [此后，勇者不知所踪](https://kagurafan.com/2024/02/08/%e6%ad%a4%e5%90%8e%ef%bc%8c%e5%8b%87%e8%80%85%e4%b8%8d%e7%9f%a5%e6%89%80%e8%b8%aa/)
+- [魔法·勇者·大冒险！](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e6%b3%95%c2%b7%e5%8b%87%e8%80%85%c2%b7%e5%a4%a7%e5%86%92%e9%99%a9%ef%bc%81/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [魔法少女木叶](https://otaku-plan.com/konoha_cn/)
