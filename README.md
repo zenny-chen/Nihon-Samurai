@@ -245,7 +245,9 @@
 - [《痴情哥哥与病弱妹妹的乡间生活》国际版场景剧情补丁](https://appendingpulse.jp/dl/dok7cefc0mv7?lang=cn)
 - [《茂伸奇谈-Happy End-》场景剧情补丁（2025-06-14更新）](https://appendingpulse.jp/dl/monohe_patch/)
 - [Shiravune 游戏补丁](https://xiaoxiong0.wordpress.com/)（由于补丁语言版本和下载页面的语言相同，为避免您下载不适用的游戏补丁，请您通过页面右上方的"Language"按钮选择您所惯用的语言后，再选择您所需要的游戏补丁。）
+- [BokiBoki Steam Patch](https://www.boki2.fun/r18/steam_patch)
 - [苍之彼方的四重奏](https://patches.nekonyansoft.com/)
+- [淫习的幽世村 ~绝对不能曝光女性身分的时间~（Kakuriyo Village ~Moratorium of Adolescence~）](https://www.boki2.fun/r18/newsitem.php?obj_id=9iQ8nu3YdDx9pKSbAETbYxEw1bnfnHG1)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
