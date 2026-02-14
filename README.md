@@ -253,6 +253,7 @@
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
+- [ファンタジスタ明日翔](https://store-jp.nintendo.com/item/software/D70010000076809)
 - [《双截龙4》全人物出招表 主角、敌人及BOSS出招表](https://www.gamersky.com/handbook/201702/866140.shtml)
 - [双截龙4实用连招推荐 简单好用连招操作技巧汇总](https://m.3dmgame.com/mip/gl/3627786.html)
 - [梦幻模拟战1+2》重制版图文攻略 全关卡流程分歧剧情攻略](https://www.3dmgame.com/gl/3802973.html)
