@@ -248,6 +248,8 @@
 - [BokiBoki Steam Patch](https://www.boki2.fun/r18/steam_patch)
 - [苍之彼方的四重奏](https://patches.nekonyansoft.com/)
 - [淫习的幽世村 ~绝对不能曝光女性身分的时间~（Kakuriyo Village ~Moratorium of Adolescence~）](https://www.boki2.fun/r18/newsitem.php?obj_id=9iQ8nu3YdDx9pKSbAETbYxEw1bnfnHG1)
+- [阿拉卡～JK退魔师恐怖探索RPG～（Araka~JK Exorcist Horror RPG）](https://www.boki2.fun/r18/newsitem.php?obj_id=1F814sTPB62ye0MxSx41shymsKjCWLLP)
+- [猎妻迷宫（Hunting Labyrinth）](https://www.boki2.fun/r18/newsitem.php?obj_id=5L24fc0f74G0eg3rqbzqmcLxwZ36bKZF)
 - [足球小将新秀崛起全培养事件详解](https://www.doyo.cn/article/404922)
 - [足球小将新秀崛起世青赛全挑战达成攻略](https://www.doyo.cn/article/404833?p=1)
 - [《足球小将新秀崛起》图文攻略 故事模式图文攻略](https://www.bilibili.com/read/cv8026411/)
