@@ -237,6 +237,7 @@
 - [此后，勇者不知所踪](https://kagurafan.com/2024/02/08/%e6%ad%a4%e5%90%8e%ef%bc%8c%e5%8b%87%e8%80%85%e4%b8%8d%e7%9f%a5%e6%89%80%e8%b8%aa/)
 - [魔法·勇者·大冒险！](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e6%b3%95%c2%b7%e5%8b%87%e8%80%85%c2%b7%e5%a4%a7%e5%86%92%e9%99%a9%ef%bc%81/)
 - [魔王之女与封印之塔](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%ad%94%e7%8e%8b%e4%b9%8b%e5%a5%b3%e4%b8%8e%e5%b0%81%e5%8d%b0%e4%b9%8b%e5%a1%94/)
+- [哥哥，早起前要一直抱紧我哦！](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%93%a5%e5%93%a5%ef%bc%8c%e6%97%a9%e8%b5%b7%e5%89%8d%e8%a6%81%e4%b8%80%e7%9b%b4%e6%8a%b1%e7%b4%a7%e6%88%91%e5%93%a6%ef%bc%81/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [魔法少女木叶](https://otaku-plan.com/konoha_cn/)
