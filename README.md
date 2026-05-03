@@ -671,6 +671,7 @@
 - [Wiktionary, the free dictionary](https://en.wiktionary.org/wiki/Wiktionary:Main_Page)
 - [Benjamin Franklin Quotes](https://www.brainyquote.com/authors/benjamin-franklin-quotes)
 - [本杰明·富兰克林（Benjamin Franklin）的名言](http://www.zhlzw.com/gy/lz/47118.html)
+- [富兰克林自传_在线阅读](https://xyyuedu.com/rwzj/fulankelin/index.html)
 - [App怎么读？null怎么读？这个GitHub项目要收藏起来](https://www.toutiao.com/i7058819858724635172/)
 - [各种标点符号用英文如何表达？](https://mp.weixin.qq.com/s?__biz=MzIyNDI3MTIxNg==&mid=2651146532&idx=1&sn=6c22c8295fd89d2904e9280e00b6352a)
 - [常见符号英文怎么说？](https://www.toutiao.com/video/7211349881984732473/)
