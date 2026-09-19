@@ -240,6 +240,7 @@
 - [哥哥，早起前要一直抱紧我哦！](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%93%a5%e5%93%a5%ef%bc%8c%e6%97%a9%e8%b5%b7%e5%89%8d%e8%a6%81%e4%b8%80%e7%9b%b4%e6%8a%b1%e7%b4%a7%e6%88%91%e5%93%a6%ef%bc%81/)
 - [冠位功夫娘](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e5%86%a0%e4%bd%8d%e5%8a%9f%e5%a4%ab%e5%a8%98/)
 - [邪夜将至](https://kagurafan.com/2025/05/30/%e9%82%aa%e5%a4%9c%e5%b0%86%e8%87%b3/)
+- [雪莉尔的大冒险～金色巨龙与遗迹之岛～](https://kagurafan.com/category/%e8%a1%a5%e4%b8%81/%e9%9b%aa%e8%8e%89%e5%b0%94%e7%9a%84%e5%a4%a7%e5%86%92%e9%99%a9%ef%bd%9e%e9%87%91%e8%89%b2%e5%b7%a8%e9%be%99%e4%b8%8e%e9%81%97%e8%bf%b9%e4%b9%8b%e5%b2%9b%ef%bd%9e/)
 - [YARISUTEMESUBUTA ~ 一次性交易大师 ~](https://072project.com/r18/en/about/patch_guide)
 - [梦魇骑士 \~圣洁少女与堕落魔法\~](https://otaku-plan.com/nightmare_cn/)
 - [魔法少女木叶](https://otaku-plan.com/konoha_cn/)
