@@ -652,7 +652,8 @@
 - [上海一网通办](http://zwdt.sh.gov.cn/govPortals/index.do)
 - [微软官方商城购买Office](https://www.microsoftstore.com.cn/c/office)
 - macOS系统下的日语输入法中如何输入ゐ、ゑ：分别输入 wyi 和 wye 即可～
-- XBOX手柄按键与PS手柄按键对应 —— X <-> ⬜︎，   Y <-> △ ，  B <-> 〇，  A <-> ✖  
+- XBOX手柄按键与PS手柄按键对应 —— X <-> ⬜︎，   Y <-> △ ，  B <-> 〇，  A <-> ✖
+- [特殊符号大全](https://zhuanlan.zhihu.com/p/664989877)
 - [《圣斗士星矢》黄金圣斗士必杀技大全（原文+翻译）](https://www.toutiao.com/article/7108356477714252320/)
 - [你不了解的世嘉MD32X：主机硬件艰难升级路](https://www.toutiao.com/video/7375107136738558499/)
 - [什么是打击感？从春日野樱的重拳动作说起](https://www.toutiao.com/article/7124495631917679119/)
